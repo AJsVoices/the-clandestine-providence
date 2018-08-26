@@ -49,11 +49,13 @@ He grabbed the back of my jacket and I knew there would be wrinkles I'd have to 
 
 "Why do you think he likes me in any way other than a friend?" He stopped so suddenly and pushed me into an alleyway.  I didn't like this at all.
 
-"He wanted you.  He told me.  When he first met you.  He wanted you to bite him, and he wanted to fuck you.  He came to me in the dream with your fucking love bite on his neck.  
+"He wanted you.  He told me.  When he first met you.  He wanted you to bite him, and he wanted to fuck you.  He came to me in the dream with your fucking love bite on his neck."
+
+The smirk on Ant's face I wanted to punch
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkwNDQyMjg3NCw2NjIxMTYyNDQsLTE1ND
+eyJoaXN0b3J5IjpbLTU5NDU1MjI2Nyw2NjIxMTYyNDQsLTE1ND
 gwNTEyMjQsMjA4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQy
 NzI0XX0=
 -->
