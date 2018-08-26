@@ -47,11 +47,13 @@ He grabbed the back of my jacket and I knew there would be wrinkles I'd have to 
 
 "All we do is fight.  He doesn't fight with you. How the fuck can he be happier."  I growled at him.
 
-"Why 
+"Why do you think he likes me in any way other than a friend?" He stopped so suddenly and pushed me into an alleyway.  I didn't like this at all.
+
+"He wanted you.  He told me.  When he first met you.  He wanted you to bite him, and he wanted to fuck you.  He came to me in the dream with your fucking love bite on his neck.  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MzE4NjQ0NzEsNjYyMTE2MjQ0LC0xNT
-Q4MDUxMjI0LDIwODkzMjAxOTgsLTEyOTU5NTc1MjYsLTQ1NzU0
-MjcyNF19
+eyJoaXN0b3J5IjpbMTkwNDQyMjg3NCw2NjIxMTYyNDQsLTE1ND
+gwNTEyMjQsMjA4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQy
+NzI0XX0=
 -->
