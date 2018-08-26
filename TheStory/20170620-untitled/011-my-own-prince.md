@@ -19,12 +19,14 @@ He blinked at me, "Really?  You already forgot his name.  Classic.  Just stay aw
 
 I don't know why I was so surprised he was talking about Nox.  I was surprised I didn't think of it.  Maybe those few drinks really had gone to my head.  "He doesn't need me anyway.  Dorian said since he last saw me he has been doing great."  I downed the last of the whiskey and waved for a refill.
 
-Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me and spoke in a quiet voice, "Nox is only doing great because he found a way to work out his problems without drinking or getting high when his life tumbles out of control.  And he found that way because he was about to meet a pair of blue fucking eyes he was in love with.  Those blue eyes broke him into tiny little pieces and he worked his ass off putting those pieces back together only so you could shred him again into tiny little bits 5 years later.  He's all Ant, give him a change.  But here you sit three thousand miles away while he just wants to have lunch.  Fucking piece of work."
+Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me and spoke in a quiet voice, "Nox is only doing great because he found a way to work out his problems without drinking or getting high when his life tumbles out of control.  And he found that way because he was about to meet a pair of blue fucking eyes he was in love with.  Those blue eyes broke him into tiny little pieces and he worked his ass off putting those pieces back together only so you could shred him again into tiny little bits 5 years later.  He's all Ant, give him a chance.  But here you sit three thousand miles away while he just wants to have lunch.  Fucking piece of work."
 
 "Why the fuck should I care?  He's got you to pick him up."
 
-The vampire smirked at me showing off his pointed fangs.  "Oh, I don't know because he fucking loves you.  But hey I'm sure the fifty thousand texts he's sent you I'm sure 
+The vampire smirked at me showing off his pointed fangs.  "Oh, I don't know because he fucking loves you.  But hey I'm sure the fifty thousand texts he's sent you I'm sure tell you nothing."  
+
+The vampire walked away from me with a growl.  I reached out and tried to grab him but he was already out of my range of motion.  I stumbled as I got off the stool and he caught me.  "Fuck!
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3OTQ2NDg0MjYsLTEyOTU5NTc1MjYsLT
+eyJoaXN0b3J5IjpbLTE0OTM3OTIyNzIsLTEyOTU5NTc1MjYsLT
 Q1NzU0MjcyNF19
 -->
