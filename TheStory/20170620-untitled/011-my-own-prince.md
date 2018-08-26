@@ -25,8 +25,10 @@ Giovanni shook his head and walked back over to me and leaned against the bar be
 
 The vampire smirked at me showing off his pointed fangs.  "Oh, I don't know because he fucking loves you.  But hey I'm sure the fifty thousand texts he's sent you I'm sure tell you nothing."  
 
-The vampire walked away from me with a growl.  I reached out and tried to grab him but he was already out of my range of motion.  I stumbled as I got off the stool and he caught me.  "Fuck!
+The vampire walked away from me with a growl.  I reached out and tried to grab him but he was already out of my range of motion.  I stumbled as I got off the stool and he caught me.  "Fuck! Man.  Just sit down and leave it alone.  Or better yet go to bed."
+
+"I'm fine.  And if I go to sleep I'll try to find **him**."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0OTM3OTIyNzIsLTEyOTU5NTc1MjYsLT
-Q1NzU0MjcyNF19
+eyJoaXN0b3J5IjpbMjA4OTMyMDE5OCwtMTI5NTk1NzUyNiwtND
+U3NTQyNzI0XX0=
 -->
