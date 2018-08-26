@@ -15,8 +15,10 @@ The vampire sighed.  "Doesn't matter.  You just proved me right though.  I'm kin
 
 "Who the fuck are you talking about?"  I asked.
 
+He blinked at me, "Really?  You already forgot his name.  Classic.  Just stay away from Nox, Mr. Hutton."
 
+I don't know why I was so surprised he was talking about Nox.  I was surprised I didn't 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ5NjU1MTI5MywtMTI5NTk1NzUyNiwtND
-U3NTQyNzI0XX0=
+eyJoaXN0b3J5IjpbNzU5Njk1NjA1LC0xMjk1OTU3NTI2LC00NT
+c1NDI3MjRdfQ==
 -->
