@@ -53,11 +53,11 @@ He grabbed the back of my jacket and I knew there would be wrinkles I'd have to 
 
 The smirk on Ant's face I wanted to punch.  "You think he wants to fuck me?"  He laughed.  "Oh, fuck.  You're jealous."  He continued to snicker and laugh and I rolled my eyes and pushed him away.  He stumbled away still laughing and I walked away.  Fucking vampires.
 
-In the span of a blink
+In the span of a blink of an eye and mid step The Prince of New York had his arms wrapped around me.  He pushed past my shields 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMjI4NDUyNTQsMTA2MjQ3MDM1NywtNT
-k0NTUyMjY3LDY2MjExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIw
-MTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
+eyJoaXN0b3J5IjpbLTI4MzkxMTQ0NCwxMDYyNDcwMzU3LC01OT
+Q1NTIyNjcsNjYyMTE2MjQ0LC0xNTQ4MDUxMjI0LDIwODkzMjAx
+OTgsLTEyOTU5NTc1MjYsLTQ1NzU0MjcyNF19
 -->
