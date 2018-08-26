@@ -59,11 +59,11 @@ I slammed my shields down and the vampire  yelped.  "Fuck."
 
 "What the fuck did you to do me?"  I growled at him and flung myself around and shoved him.
 
-"I didn't
+"I had to push past your shield but you know Nox doesn't shield, and he's way more sensitive than you are to magic.  I didn't do anything other than push past your natural shields.  Everything els
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MjE4NzMxMTcsMTA2MjQ3MDM1NywtNT
+eyJoaXN0b3J5IjpbLTE4MjU2MTY4NTAsMTA2MjQ3MDM1NywtNT
 k0NTUyMjY3LDY2MjExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIw
 MTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
