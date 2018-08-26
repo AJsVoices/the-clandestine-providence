@@ -7,8 +7,12 @@ The man smirked.  "You know you have very loud thoughts."
 
 "Do all of you fucking read minds?"  I groaned out as I took a long gulp of my whiskey.  What the fuck was the Prince of New York doing in Vegas?
 
-"No, well yeah.  My kind do.  
+"No, well yeah.  My kind do.  Not all do though."  He said flatly.  "He doesn't know you are here does he?"
+
+I looked over at Anthony Giovanni, fucking son of Il Cane and one of Nox's fuck buddies. "Who?"
+
+The vampire sighed.  "Doesn't matter.  You just proved me r
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMzU0NDc5ODQsLTEyOTU5NTc1MjYsLT
+eyJoaXN0b3J5IjpbLTE0OTE3OTg3NzYsLTEyOTU5NTc1MjYsLT
 Q1NzU0MjcyNF19
 -->
