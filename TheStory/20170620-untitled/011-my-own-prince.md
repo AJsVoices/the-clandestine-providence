@@ -19,8 +19,8 @@ He blinked at me, "Really?  You already forgot his name.  Classic.  Just stay aw
 
 I don't know why I was so surprised he was talking about Nox.  I was surprised I didn't think of it.  Maybe those few drinks really had gone to my head.  "He doesn't need me anyway.  Dorian said since he last saw me he has been doing great."  I downed the last of the whiskey and waved for a refill.
 
-Giovanni
+Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me a
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MzE3MzY1MTQsLTEyOTU5NTc1MjYsLT
+eyJoaXN0b3J5IjpbLTEzMzkyMDg4NTcsLTEyOTU5NTc1MjYsLT
 Q1NzU0MjcyNF19
 -->
