@@ -11,8 +11,12 @@ The man smirked.  "You know you have very loud thoughts."
 
 I looked over at Anthony Giovanni, fucking son of Il Cane and one of Nox's fuck buddies. "Who?"
 
-The vampire sighed.  "Doesn't matter.  You just proved me r
+The vampire sighed.  "Doesn't matter.  You just proved me right though.  I'm kinda glad you're here now."  He said as he got up from the stool and dropped a hundred on the bar, he hadn't even ordered.  "Stay away from him.  I'm going to have to pick up all the fucking pieces again, if there is anything left when I get back."
+
+"Who the fuck are you talking about?"  I asked.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0OTE3OTg3NzYsLTEyOTU5NTc1MjYsLT
-Q1NzU0MjcyNF19
+eyJoaXN0b3J5IjpbLTQ5NjU1MTI5MywtMTI5NTk1NzUyNiwtND
+U3NTQyNzI0XX0=
 -->
