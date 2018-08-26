@@ -27,8 +27,10 @@ The vampire smirked at me showing off his pointed fangs.  "Oh, I don't know beca
 
 The vampire walked away from me with a growl.  I reached out and tried to grab him but he was already out of my range of motion.  I stumbled as I got off the stool and he caught me.  "Fuck! Man.  Just sit down and leave it alone.  Or better yet go to bed."
 
-"I'm fine.  And if I go to sleep I'll try to find **him**. I'm not drunk."  I protested.  "I tripped over the bar stool in 
+"I'm fine.  And if I go to sleep I'll try to find **him**. I'm not drunk."  I protested.  "I tripped over the bar stool because I was in a hurry."
+
+He laughed.  I stood staring at him as he laughed at me.  "Dude, if you could see yourself.  Look, Nox is fine.  I promise you.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzQ2Mzk0NzU0LDIwODkzMjAxOTgsLTEyOT
-U5NTc1MjYsLTQ1NzU0MjcyNF19
+eyJoaXN0b3J5IjpbLTIyNzQ1Mjk4NywyMDg5MzIwMTk4LC0xMj
+k1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
