@@ -59,11 +59,13 @@ I slammed my shields down and the vampire  yelped.  "Fuck."
 
 "What the fuck did you to do me?"  I growled at him and flung myself around and shoved him.
 
-"I had to push past your shield but you know Nox doesn't shield, and he's way more sensitive than you are to magic.  I didn't do anything other than push past your natural shields.  Everything else was always here.  I don't have much control over the lust factor.  I'm an aberration of my kind just like he is.  Nox doesn't want me anymore than I want him.  It's the fucking magic.  His fucking blood smells so fucking amazing.  Being in the same fucking room is like always smelling bacon a
+"I had to push past your shield but you know Nox doesn't shield, and he's way more sensitive than you are to magic.  I didn't do anything other than push past your natural shields.  Everything else was always here.  I don't have much control over the lust factor.  I'm an aberration of my kind just like he is.  Nox doesn't want me anymore than I want him.  It's the fucking magic.  His fucking blood smells so fucking amazing.  Being in the same fucking room is like always smelling bacon and noone wants to share with you."
+
+"How the fuck do I know
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MzQwODAwOTcsMTA2MjQ3MDM1NywtNT
-k0NTUyMjY3LDY2MjExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIw
-MTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
+eyJoaXN0b3J5IjpbMTEyNDE3MTI0MywxMDYyNDcwMzU3LC01OT
+Q1NTIyNjcsNjYyMTE2MjQ0LC0xNTQ4MDUxMjI0LDIwODkzMjAx
+OTgsLTEyOTU5NTc1MjYsLTQ1NzU0MjcyNF19
 -->
