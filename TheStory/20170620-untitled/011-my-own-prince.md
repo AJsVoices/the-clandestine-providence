@@ -43,8 +43,8 @@ Giovanni sat down next to me again and shrugged.  "We were taught to shield ours
 
 He grabbed the back of my jacket and I knew there would be wrinkles I'd have to get out later.  "Watch the jacket!"  He patted my back and rubbed out the wrinkles even as he pushed me through the doors and out into the fresh air.  He lead me down the sidewalk through the strip.  It really was nice out here.
 
-"I don't do anything.  Nox does it all.  He just needs time and patience from his family and friends.  I mean it's great when I get to kick the shit out of him.  But he gives as good as he gets.  I make him work his body.  His brothers make him fe
+"I don't do anything.  Nox does it all.  He just needs time and patience from his family and friends.  I mean it's great when I get to kick the shit out of him.  But he gives as good as he gets.  I make him work his body.  His brothers make him feel loved.  Dorian gives him something to do.  Margo makes him talk.  And when I say make, I don't me it's a forced thing, he just responds to certain things.  Fuck, for all the me
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1OTkyMjYyMTAsLTE1NDgwNTEyMjQsMj
-A4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQyNzI0XX0=
+eyJoaXN0b3J5IjpbMTcwNTIwNDk1NywtMTU0ODA1MTIyNCwyMD
+g5MzIwMTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
