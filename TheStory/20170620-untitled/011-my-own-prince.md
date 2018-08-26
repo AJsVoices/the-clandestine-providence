@@ -19,8 +19,8 @@ He blinked at me, "Really?  You already forgot his name.  Classic.  Just stay aw
 
 I don't know why I was so surprised he was talking about Nox.  I was surprised I didn't think of it.  Maybe those few drinks really had gone to my head.  "He doesn't need me anyway.  Dorian said since he last saw me he has been doing great."  I downed the last of the whiskey and waved for a refill.
 
-Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me a
+Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me and spoke in a quiet voice, "Nox is only doing great because he found a way to work out his problems without drinking or getting high when his life tumbles out of control.  And he found that way because he was about to meet a pair of blue fucking eyes he was in love with.  Those blue eyes broke him into tiny little peices and he worke
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMzkyMDg4NTcsLTEyOTU5NTc1MjYsLT
-Q1NzU0MjcyNF19
+eyJoaXN0b3J5IjpbLTQ3ODMyMDcwMCwtMTI5NTk1NzUyNiwtND
+U3NTQyNzI0XX0=
 -->
