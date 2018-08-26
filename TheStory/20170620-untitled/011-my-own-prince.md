@@ -55,11 +55,15 @@ The smirk on Ant's face I wanted to punch.  "You think he wants to fuck me?"  He
 
 In the span of a blink of an eye and mid step The Prince of New York had his arms wrapped around me.  He pushed past my shields and I heard, no I felt the pull of lust towards the man holding me.  He pushed past my defenses and I leaned my head to the side willingly.  I wanted him to bite me.
 
-I slammed my shields down and the vampire 
+I slammed my shields down and the vampire  yelped.  "Fuck."
+
+"What the fuck did you to do me?"  I growled at him and flung myself around and shoved him.
+
+"I didn't
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MTc5Mjg2NjEsMTA2MjQ3MDM1NywtNT
+eyJoaXN0b3J5IjpbLTE4MjE4NzMxMTcsMTA2MjQ3MDM1NywtNT
 k0NTUyMjY3LDY2MjExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIw
 MTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
