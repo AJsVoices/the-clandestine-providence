@@ -39,8 +39,12 @@ Giovanni sat down next to me again and shrugged.  "We were taught to shield ours
 
 "Sure they are.  I was born a vampire.  Most vampires are made, but I was born this way.  The need for blood is strong, and I can't live off of human food alone but I can for a short time.  Blood fuels our magic, we don't make our own.  I don't breathe like you, but I do breathe."  He said.  I was way too drunk to understand so I just nodded my head.
 
-"How do you do it?" I asked as I picked up the Jameson and the fucking vampire prince plucked it from my fingers and downed it in one gulp.
+"How do you do it?" I asked as I picked up the Jameson and the fucking vampire prince plucked it from my fingers and downed it in one gulp.  "Fucker!  That was mine."
+
+He grabbed the back of my jacket and I knew there would be wrinkles I'd have to get out later.  "Watch the jacket!"  He patted my back and rubbed out the wrinkles even as he pushed me through the doors and out into the fresh air.  He lead me down the sidewalk through the strip.  It really was nice out here.
+
+"I don't do anythi
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMTA4NzYzMjcsLTE1NDgwNTEyMjQsMj
+eyJoaXN0b3J5IjpbLTE2NjE5NjA1MDMsLTE1NDgwNTEyMjQsMj
 A4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQyNzI0XX0=
 -->
