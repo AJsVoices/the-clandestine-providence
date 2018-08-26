@@ -35,8 +35,12 @@ He laughed.  I stood staring at him as he laughed at me.  "Dude, if you could se
 
 Giovanni sat down next to me again and shrugged.  "We were taught to shield ourselves.  Not all of us can, but if you live and breathe you can do it."
 
-"
+"Vampires aren't living and breathing creatures."  I said flatly.
+
+"Sure they are.  I was born a vampire.  Most vampires are made, but I was born this way.  The need for blood is strong, and I can't live off of human food alone but I can for a short time.  Blood fuels our magic, we don't make our own.  I don't breathe like you, but I do breathe."  He said.  I was way too drunk to understand so I just nodded my head.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkwNzk1NDU4MSwyMDg5MzIwMTk4LC0xMj
-k1OTU3NTI2LC00NTc1NDI3MjRdfQ==
+eyJoaXN0b3J5IjpbLTE1NDgwNTEyMjQsMjA4OTMyMDE5OCwtMT
+I5NTk1NzUyNiwtNDU3NTQyNzI0XX0=
 -->
