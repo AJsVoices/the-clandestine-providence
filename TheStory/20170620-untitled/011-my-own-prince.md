@@ -29,8 +29,14 @@ The vampire walked away from me with a growl.  I reached out and tried to grab h
 
 "I'm fine.  And if I go to sleep I'll try to find **him**. I'm not drunk."  I protested.  "I tripped over the bar stool because I was in a hurry."
 
-He laughed.  I stood staring at him as he laughed at me.  "Dude, if you could see yourself.  Look, Nox is fine.  I promise you.  He's been dealing with his nightmares since he was six years old.  And if you truly have been dreaming with him for all those years you have to know that.  His nightmares got worse after you didn't show up.  Like ten times worse.  And he'd probably have a shit ton more scars if he hadn't learned how to heal his wounds.
+He laughed.  I stood staring at him as he laughed at me.  "Dude, if you could see yourself.  Look, Nox is fine.  I promise you.  He's been dealing with his nightmares since he was six years old.  And if you truly have been dreaming with him for all those years you have to know that.  His nightmares got worse after you didn't show up.  Like ten times worse.  And he'd probably have a shit ton more scars if he hadn't learned how to heal his wounds.  He's not better off without you, even if I think you're a douche."  He grinned at me with that smile that I knew was a joke, but normally I'd hear the truth of the matter, but I didn't hear him at all.
+
+"Why can't I read you at all?"  I asked.
+
+Giovanni sat down next to me again and shrugged.  "We were taught to shield ourselves.  Not all of us can, but if you live and breathe you can do it."
+
+"
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwODA0OTk2MiwyMDg5MzIwMTk4LC0xMj
+eyJoaXN0b3J5IjpbMTkwNzk1NDU4MSwyMDg5MzIwMTk4LC0xMj
 k1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
