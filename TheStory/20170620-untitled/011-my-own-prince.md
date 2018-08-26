@@ -61,11 +61,11 @@ I slammed my shields down and the vampire  yelped.  "Fuck."
 
 "I had to push past your shield but you know Nox doesn't shield, and he's way more sensitive than you are to magic.  I didn't do anything other than push past your natural shields.  Everything else was always here.  I don't have much control over the lust factor.  I'm an aberration of my kind just like he is.  Nox doesn't want me anymore than I want him.  It's the fucking magic.  His fucking blood smells so fucking amazing.  Being in the same fucking room is like always smelling bacon and noone wants to share with you."
 
-"How the fuck do I know
+"I don't believe you."  I said.  I wasn't exactly sure what had happened, but I'd stopped him from feeding on me.  I hate vampires!
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEyNDE3MTI0MywxMDYyNDcwMzU3LC01OT
+eyJoaXN0b3J5IjpbMTQxMTMxNTcyOCwxMDYyNDcwMzU3LC01OT
 Q1NTIyNjcsNjYyMTE2MjQ0LC0xNTQ4MDUxMjI0LDIwODkzMjAx
 OTgsLTEyOTU5NTc1MjYsLTQ1NzU0MjcyNF19
 -->
