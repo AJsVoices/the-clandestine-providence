@@ -51,11 +51,13 @@ He grabbed the back of my jacket and I knew there would be wrinkles I'd have to 
 
 "He wanted you.  He told me.  When he first met you.  He wanted you to bite him, and he wanted to fuck you.  He came to me in the dream with your fucking love bite on his neck."
 
-The smirk on Ant's face I wanted to punch.  "You think he wants to fuck me?"  He laughed.  "Oh, fuck.  You're jealous."  He continued to snicker and laugh and I rolled my eyes and pushed him away.  He stumbled
+The smirk on Ant's face I wanted to punch.  "You think he wants to fuck me?"  He laughed.  "Oh, fuck.  You're jealous."  He continued to snicker and laugh and I rolled my eyes and pushed him away.  He stumbled away still laughing and I walked away.  Fucking vampires.
+
+In the span of a blink
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA2MjQ3MDM1NywtNTk0NTUyMjY3LDY2Mj
-ExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIwMTk4LC0xMjk1OTU3
-NTI2LC00NTc1NDI3MjRdfQ==
+eyJoaXN0b3J5IjpbLTIxMjI4NDUyNTQsMTA2MjQ3MDM1NywtNT
+k0NTUyMjY3LDY2MjExNjI0NCwtMTU0ODA1MTIyNCwyMDg5MzIw
+MTk4LC0xMjk1OTU3NTI2LC00NTc1NDI3MjRdfQ==
 -->
