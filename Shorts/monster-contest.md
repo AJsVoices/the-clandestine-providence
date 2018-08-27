@@ -41,12 +41,11 @@ Garret tortures Alex instead of him
 6. Nox prays to the universe to save Alex
 7. Their next dream Nox doesn't remember him or what happened
 
-The air no longer whispered the singular word as I hugged my good friend good-bye.  His ice blue eyes sparkled as we waved and the world shimmered a
+The air no longer whispered the singular word as I hugged my good friend good-bye.  His ice blue eyes sparkled as we waved and the world shimmered and I rubbed my eyes to clear the dream from them.  It was morning - time to get to school.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time made me cry 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1OTk5NDA0MywtMTUzMDkxOTM1NCw4Nz
-I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
-NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
-==
+eyJoaXN0b3J5IjpbNjgyMDk1NDg3LC0xNTMwOTE5MzU0LDg3Mj
+gyNDc2NCwtMTQ4MjIxNzQzLDY3MjIyMDM4NywtNjM5Mjk3NjU3
+LC0zNjE5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
 -->
