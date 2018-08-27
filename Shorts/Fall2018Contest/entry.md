@@ -1,11 +1,10 @@
 The room was always the same with it's white walls and wooden floor and the air no longer whispered the singular word, my demons had no hold when Alex was with me.  Alex and I had played all night long, building towers with lettered blocks and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
-But it was time to go and
-His eyes blue eyes sparkled as we gave each other a hug good bye and waved.
+But it was time to go. His eyes big blue eyes sparkled as we hugged and they waved good-bye.
 
-I stretched then  rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
+I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
 
-I was always early for class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was here.
+And as always, I was early for class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was here.
 
 I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall across from the orange door, under the large window that overlooked the room.  I stood with my feet directly under my hips, a foot away from the wall.  I pressed my long fingers into the wall in front of me and I leaned forward just a little.  I took a deep breath and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep without meaning to, I hadn't thought I was that tired, but Alex and I must have played really hard the night before.  The memories were fading but those blue eyes and his little voice always stayed with me.  
 
@@ -43,6 +42,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4OTgzNjM0NjQsLTQ3Nzc1MTQzNywtMT
-A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
+eyJoaXN0b3J5IjpbLTgxNzMxMTIwNCwtNDc3NzUxNDM3LC0xMD
+Q0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NTJdfQ==
 -->
