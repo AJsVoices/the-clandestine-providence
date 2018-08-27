@@ -19,12 +19,12 @@ Deadline: Sept 17
 10. Punishment 
 
 ### Draft # 1
-It always started the same.  Th
+It always started the same.  The walls were white covered in shelves
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4ODc2MDg2MzUsLTE0ODIyMTc0Myw2Nz
-IyMjAzODcsLTYzOTI5NzY1NywtMzYxOTU2MTA1LC0xMzk1Nzg5
-MDM0LDE3ODg2MDgyMzJdfQ==
+eyJoaXN0b3J5IjpbMTI2ODc4NTgwMCwtMTQ4MjIxNzQzLDY3Mj
+IyMDM4NywtNjM5Mjk3NjU3LC0zNjE5NTYxMDUsLTEzOTU3ODkw
+MzQsMTc4ODYwODIzMl19
 -->
