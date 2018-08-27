@@ -1,6 +1,6 @@
 The room was always the same with it's white walls and wooden floor.  The only real color was the painting on the wall of a tree in a foreign landscape and the blocks piled high in their colorful bins.  Alex and I had played all night long.  Building towers and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh, but it was time to go and the air no longer whispered the singular word, my demons had no hold when Alex was with me. His eyes blue eyes sparkled as we gave each other a hug good bye and waved.
 
-The world shimmered as I rubbed my eyes to clear the dream from them.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
+I stretched then  rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
 
 I was always early for class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was here.
 
@@ -38,6 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNDQxMzM2MzEsLTQ0OTM4NTA5NywtMT
-A5NjcyMjQ1Ml19
+eyJoaXN0b3J5IjpbLTQ3Nzc1MTQzNywtMTA0NDEzMzYzMSwtND
+Q5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
