@@ -41,11 +41,11 @@ Garret tortures Alex instead of him
 6. Nox prays to the universe to save Alex
 7. Their next dream Nox doesn't remember him or what happened
 
-
+The air no longer whispered the singular word as I hugged my good friend good-bye.  His ice blue eyes sparkled as we waved and the world shimmered a
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMwMTA5ODI1MiwtMTUzMDkxOTM1NCw4Nz
+eyJoaXN0b3J5IjpbLTM1OTk5NDA0MywtMTUzMDkxOTM1NCw4Nz
 I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
 NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
 ==
