@@ -47,12 +47,11 @@ I was early to class behind the orange door - Mr. Garrett's class.  I was his on
 
 I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall across from the orange door, under the large window that overlooked the room.  I stood with my feet directly under my hips, a foot away from the wall.  I pressed my long fingers into the wall in front of me and I leaned forward just a little.  I took a deep breath and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep without meaning to, I hadn't thought I was that tired, but Alex and I must have played really hard the night before.  The memories were fading but those blue eyes and his little voice always stayed with me.  
 
-
+The room was the same as it always was.  The white walls, and the wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins as the letters flicked fro
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4MzExNDIzNSwtMTUzMDkxOTM1NCw4Nz
-I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
-NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
-==
+eyJoaXN0b3J5IjpbNjUzMzA4MDczLC0xNTMwOTE5MzU0LDg3Mj
+gyNDc2NCwtMTQ4MjIxNzQzLDY3MjIyMDM4NywtNjM5Mjk3NjU3
+LC0zNjE5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
 -->
