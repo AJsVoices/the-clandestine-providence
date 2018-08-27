@@ -19,12 +19,14 @@ Deadline: Sept 17
 10. Punishment 
 
 ### Draft # 1
-It always started the same.  The walls were white covered in shelves and the floors were made of wood.  A pile of blocks were unceremoniously strewen across the floor and their bins tipped over at the edge.  I was wearing a green felt monster costume and big red floppy shoes.  The mask fell over my face and I had to keep pushing it up.  
+The walls were white covered in shelves and the floors were made of wood.  A pile of blocks were unceremoniously strewn across the floor and their bins tipped over at the edge.  I was wearing a green felt monster costume and big red floppy shoes.  The mask fell over my face and I had to keep pushing it up.  It was always the same, but what I choose to do with the blocks was my choice.  Tonight I started building towers. 
+
+And the 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODk5MDQ5MDYxLC0xNDgyMjE3NDMsNjcyMj
-IwMzg3LC02MzkyOTc2NTcsLTM2MTk1NjEwNSwtMTM5NTc4OTAz
-NCwxNzg4NjA4MjMyXX0=
+eyJoaXN0b3J5IjpbMTk2MDA5NTQ5MywtMTQ4MjIxNzQzLDY3Mj
+IyMDM4NywtNjM5Mjk3NjU3LC0zNjE5NTYxMDUsLTEzOTU3ODkw
+MzQsMTc4ODYwODIzMl19
 -->
