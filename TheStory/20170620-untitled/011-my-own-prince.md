@@ -19,7 +19,7 @@ He blinked at me, "Really?  You already forgot his name.  Classic.  Just stay aw
 
 I don't know why I was so surprised he was talking about Nox.  I was surprised I didn't think of it.  Maybe those few drinks really had gone to my head.  "He doesn't need me anyway.  Dorian said since he last saw me he has been doing great."  I downed the last of the whiskey and waved for a refill.
 
-Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me and spoke in a quiet voice, "Nox is only doing great because he found a way to work out his problems without drinking or getting high when his life tumbles out of control.  And he found that way because he was about to meet a pair of blue fucking eyes he was in love with.  Those blue eyes broke him into tiny little pieces and he worked his ass off putting those pieces back together only so you could shred him again into tiny little bits 5 years later.  He's all Ant, give him a chance.  But here you sit three thousand miles away while he just wants to have lunch.  Fucking piece of work."
+Giovanni shook his head and walked back over to me and leaned against the bar between the stool he'd been sitting in and me and spoke in a quiet voice, "Nox is only doing great because he found a way to work out his problems without drinking or getting high when his life tumbles out of control.  And he found that way because he was about to meet a pair of blue fucking eyes he was in love with.  Those blue eyes broke him into tiny little pieces and he worked his ass off putting those pieces back together only so you could shred him again into tiny little bits five years later.  He's all Ant, give him a chance.  But here you sit three thousand miles away while he just wants to have lunch.  Fucking piece of work."
 
 "Why the fuck should I care?  He's got you to pick him up."
 
@@ -65,8 +65,8 @@ I slammed my shields down and the vampire  yelped.  "Fuck."
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwMDExMjUxNSwxNDExMzE1NzI4LDEwNj
-I0NzAzNTcsLTU5NDU1MjI2Nyw2NjIxMTYyNDQsLTE1NDgwNTEy
-MjQsMjA4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQyNzI0XX
-0=
+eyJoaXN0b3J5IjpbMTcwODQ4NjAxOCwxMTAwMTEyNTE1LDE0MT
+EzMTU3MjgsMTA2MjQ3MDM1NywtNTk0NTUyMjY3LDY2MjExNjI0
+NCwtMTU0ODA1MTIyNCwyMDg5MzIwMTk4LC0xMjk1OTU3NTI2LC
+00NTc1NDI3MjRdfQ==
 -->
