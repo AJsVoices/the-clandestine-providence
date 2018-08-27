@@ -18,7 +18,7 @@ I heard the orange door clang shut and I felt a hand on my shoulder and I winced
 
 The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  My friend couldn't scream, his mouth was covered.  
 
-It was a fast reaction, the fastest I'd ever done it.  The fastest I had ever formed fire willingly since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett couldn't hurt him.  I wove with quickness and clarity, a ball of fire so large that when it hit the pair it blinded the room and I feel out of the dream.
+It was a fast reaction, the fastest I'd ever done it.  The first I had ever formed fire since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity a ball of fire so large that when it hit the pair it blinded the room and I feel out of the dream.
 
 I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  Though a soft wind blew my longer than usual hair even though there was no windows.  It felt like someone had run their fingers through my hair.  It was the only response to my pleading as  I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
@@ -42,6 +42,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MTc2MTI1NDksLTQ3Nzc1MTQzNywtMT
-A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
+eyJoaXN0b3J5IjpbLTYwMTk5NDc2NCwtNDc3NzUxNDM3LC0xMD
+Q0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NTJdfQ==
 -->
