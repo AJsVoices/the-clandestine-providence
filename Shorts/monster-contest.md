@@ -23,12 +23,14 @@ The walls were white covered in shelves and the floors were made of wood.  A pil
 
 I grabbed a handful of lettered blocks.   Carefully I laid the block with an 'M' on the ground.  Stacked the o, and then the n.  I could stop there, but my mind wouldn't let me.  I added the s and then the t followed by the e and r.  No matter which block I used it always spelled monster.  Just like the voices always echoed monster through the curtains blowing in the wind.
 
-Now came the fun part.  I growled 
+Now came the fun part.  I growled as I stood up and stomped on the first tower.  I growled louder as I crushed two more.  I was lifting my foot when a new voice spoke softly from behind me.  "Aren't we getting a little too old to be playing with blocks?" 
+
+I turned to see a pair of striking ice blue eyes behind me and a smirk on his lips
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyOTY2OTA4MzIsLTE0ODIyMTc0Myw2Nz
-IyMjAzODcsLTYzOTI5NzY1NywtMzYxOTU2MTA1LC0xMzk1Nzg5
-MDM0LDE3ODg2MDgyMzJdfQ==
+eyJoaXN0b3J5IjpbLTQ5NDMwMjIzNCwtMTQ4MjIxNzQzLDY3Mj
+IyMDM4NywtNjM5Mjk3NjU3LC0zNjE5NTYxMDUsLTEzOTU3ODkw
+MzQsMTc4ODYwODIzMl19
 -->
