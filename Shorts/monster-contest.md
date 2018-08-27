@@ -18,8 +18,13 @@ Deadline: Sept 17
 9. Denied
 10. Punishment 
 
+### Draft # 1
+
+
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjcyMjIwMzg3LC02MzkyOTc2NTcsLTM2MT
-k1NjEwNSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX0=
+eyJoaXN0b3J5IjpbLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOT
+I5NzY1NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgy
+MzJdfQ==
 -->
