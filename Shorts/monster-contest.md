@@ -25,12 +25,14 @@ I grabbed a handful of lettered blocks.   Carefully I laid the block with an 'M'
 
 Now came the fun part.  I growled as I stood up and stomped on the first tower.  I growled louder as I crushed two more.  I was lifting my foot when a new voice spoke softly from behind me.  "Aren't we getting a little too old to be playing with blocks?" 
 
-I turned to see a pair of striking ice blue eyes behind me and a smirk on his lips
+I turned to see a pair of striking ice blue eyes behind me and a smirk on his lips.  His hair was a tossled mess, and I recognized him from a TV show I'd seen my roommates watching.  I grinned at him and he came over to me and tugged the monster mask off.  "Aren't you like fifteen now?"
+
+That was the key, he knew me, even though I didn't know him.  He made me happy.  My Mushu, made me happy.  It was the only name I ever knew him by. 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ5NDMwMjIzNCwtMTQ4MjIxNzQzLDY3Mj
-IyMDM4NywtNjM5Mjk3NjU3LC0zNjE5NTYxMDUsLTEzOTU3ODkw
-MzQsMTc4ODYwODIzMl19
+eyJoaXN0b3J5IjpbMTEzODQxODM0LC0xNDgyMjE3NDMsNjcyMj
+IwMzg3LC02MzkyOTc2NTcsLTM2MTk1NjEwNSwtMTM5NTc4OTAz
+NCwxNzg4NjA4MjMyXX0=
 -->
