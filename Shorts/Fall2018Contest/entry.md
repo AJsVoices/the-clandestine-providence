@@ -8,7 +8,7 @@ And as always, I was early for class behind the orange door.  I was the only stu
 
 I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet directly under my hips, a foot away from the wall.  I pressed my long fingers into the wall in front of me and I leaned forward just a little.  I took a deep breath and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep without meaning to, I hadn't thought I was that tired, but Alex and I must have played really hard the night before.  The memories were fading but those blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
 
-The room was the same as it always was.  The white walls, and the wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins as the letters flicked from m to o as I dropped in the first two blocks, the third was always s, and so on until all blocks spelled monster - each and every time.  Even the wind in the curtains whispered monster.
+The room was the same as it always was with it's white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins as the letters flicked from m to o as I dropped in the first two blocks, the third was always s, and so on until all blocks spelled monster - each and every time.  Even the wind in the curtains whispered monster.
 
 A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for class?"
 
@@ -42,6 +42,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjg5MzYyMjQyLC00Nzc3NTE0MzcsLTEwND
-QxMzM2MzEsLTQ0OTM4NTA5NywtMTA5NjcyMjQ1Ml19
+eyJoaXN0b3J5IjpbLTE0MTc2MTI1NDksLTQ3Nzc1MTQzNywtMT
+A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
