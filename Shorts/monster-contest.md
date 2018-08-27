@@ -53,12 +53,15 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 "I did.  I think I fell asleep waiting."  I said softly, as if I were actually in class.  "You should go before..."
 
-I heard the orange door clang shut and I felt a hand on my shoulder and I winced underneath the pressure.  The wicked voice laughed at me as he sat down.  He never said anything and then, just as Alex had appeared so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the soon he
+I heard the orange door clang shut and I felt a hand on my shoulder and I winced underneath the pressure.  The wicked voice laughed at me as he sat down.  He never said anything and then, just as Alex had appeared so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
+
+The glowing red eyes looked from me, to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up.  My friend couldn't scream, his mouth was covered.  
+
+It was a fast 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzYyMDcwNDcsLTE1MzA5MTkzNTQsOD
-cyODI0NzY0LC0xNDgyMjE3NDMsNjcyMjIwMzg3LC02MzkyOTc2
-NTcsLTM2MTk1NjEwNSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX
-0=
+eyJoaXN0b3J5IjpbMjM2MDc3MjA1LC0xNTMwOTE5MzU0LDg3Mj
+gyNDc2NCwtMTQ4MjIxNzQzLDY3MjIyMDM4NywtNjM5Mjk3NjU3
+LC0zNjE5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
 -->
