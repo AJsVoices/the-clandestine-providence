@@ -71,11 +71,15 @@ When I drifted into the darkness finally I was releived to see the room.  But I 
 
 But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it.  I stacked the blocks and even they spelled out that one word.  Nothing else but monster.  Everywhere was monster.
 
-And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest 
+And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, "Who are you?"
+
+He shrugged.  "Can I play with you?"
+
+"Sure."  I handed him a block and we started building towers that all spelled out the word monster over and ov
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY4Nzc4MjY1OCwtMTUzMDkxOTM1NCw4Nz
+eyJoaXN0b3J5IjpbMTY2OTM2OTMzMSwtMTUzMDkxOTM1NCw4Nz
 I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
 NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
 ==
