@@ -65,11 +65,14 @@ Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  Th
 
 I blinked at my teacher.  He never let me go early but I wasn't about to stall with permission to leave.  So I left as quickly as I'd come.  I scurried across the floor on my knees and grabbed my things and then rushed out the door and down the hall back to my room.
 
-I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him
+I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
+
+When I drifted into the darkness finally I was releived to see the room.  But I didn't remember why I was releived to see the room. There were blocks stacked neatly in bins and I pulled them out as the whispers 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzU4MDk5OTQ3LC0xNTMwOTE5MzU0LDg3Mj
-gyNDc2NCwtMTQ4MjIxNzQzLDY3MjIyMDM4NywtNjM5Mjk3NjU3
-LC0zNjE5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
+eyJoaXN0b3J5IjpbLTc3MzY2ODAwNywtMTUzMDkxOTM1NCw4Nz
+I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
+NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
+==
 -->
