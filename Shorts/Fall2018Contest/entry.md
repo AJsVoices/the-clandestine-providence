@@ -1,5 +1,6 @@
-The room was always the same with it's white walls and wooden floor.  The only real color was the painting on the wall of a tree in a foreign landscape and the blocks piled high in their colorful bins.  Alex and I had played all night long, building towers and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
+The room was always the same with it's white walls and wooden floor and the air no longer whispered the singular word, my demons had no hold when Alex was with me.  Alex and I had played all night long, building towers with lettered blocks and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
+But it was time to go and
 His eyes blue eyes sparkled as we gave each other a hug good bye and waved.
 
 I stretched then  rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
@@ -42,6 +43,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0OTUzNTg2ODgsLTQ3Nzc1MTQzNywtMT
+eyJoaXN0b3J5IjpbLTE4OTgzNjM0NjQsLTQ3Nzc1MTQzNywtMT
 A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
