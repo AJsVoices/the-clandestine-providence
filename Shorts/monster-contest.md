@@ -17,7 +17,8 @@ Deadline: Sept 17
 8.  Food arrives
 9. Denied
 10. Punishment 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYzOTI5NzY1NywtMzYxOTU2MTA1LC0xMz
-k1Nzg5MDM0LDE3ODg2MDgyMzJdfQ==
+eyJoaXN0b3J5IjpbMTg0ODg2MDY2MSwtNjM5Mjk3NjU3LC0zNj
+E5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
 -->
