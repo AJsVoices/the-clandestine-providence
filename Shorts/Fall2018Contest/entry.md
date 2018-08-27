@@ -26,7 +26,7 @@ And then without any warning, Mr. Garrett patted my shoulder, "That was well don
 
 I blinked at my teacher.  He never let me go early but I wasn't about to stall with permission to leave.  So I left as quickly as I'd come.  I scurried across the floor on my knees and grabbed my things and then rushed out the door and down the hall back to my room.
 
-I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
+I flopped on my bed and I tried to dream. I tried to fall asleep but the whispers in the room did not come.  And I had to go about my day.  I unfurled from my bed and I trudged out of my room. I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
 
 When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The relief was replaced with my self-defacing whispers of the dream - my self-worth echoed in each whisper.  There were blocks stacked neatly in bins and I pulled them out as the whispers got louder.  "Monster."   
 
@@ -42,7 +42,7 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc0NzYwNTgyNiwtMTEzODE4MzE2MSwtND
-c3NzUxNDM3LC0xMDQ0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3
-MjI0NTJdfQ==
+eyJoaXN0b3J5IjpbLTE0ODI3ODMzNDksLTExMzgxODMxNjEsLT
+Q3Nzc1MTQzNywtMTA0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2
+NzIyNDUyXX0=
 -->
