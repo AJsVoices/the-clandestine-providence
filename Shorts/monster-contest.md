@@ -34,12 +34,16 @@ That was the key, he knew me, even though I didn't know him.  He made me happy. 
 Garret tortures Alex instead of him
 
 1. The classroom
-2. Alex visits nox 
+2. Alex visits nox while in class
+3. Garrett uses Alex to hurt Nox to get him to spark
+4. Nox retaliates
+5. Nox prays to the universe to save Alex
+6. Their next dream Nox doesn't remember him or what happened
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNDQ0NzUyNTIsODcyODI0NzY0LC0xND
+eyJoaXN0b3J5IjpbLTE4MDUxNjc5NDksODcyODI0NzY0LC0xND
 gyMjE3NDMsNjcyMjIwMzg3LC02MzkyOTc2NTcsLTM2MTk1NjEw
 NSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX0=
 -->
