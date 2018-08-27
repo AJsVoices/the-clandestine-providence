@@ -40,13 +40,13 @@ I stacked the blocks. "Monster."  And each block I placed continued to spelled o
 
 And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, I couldn't find my name, but it didn't matter so I asked, "Who are you?"
 
-He shrugged.  "Can I play with you?"
+He thought about it then shrugged.  "Can I play with you?"
 
-"Sure."  I handed him a block and we started building towers that all spelled out the word monster over and over again.
+"Sure."  I handed him a block and we started building towers with blocks that spelled out the word 'monster'.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUxNjkxOTQ4OCwtMTEzODE4MzE2MSwtND
-c3NzUxNDM3LC0xMDQ0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3
-MjI0NTJdfQ==
+eyJoaXN0b3J5IjpbODgzNTA4NzQ2LC0xMTM4MTgzMTYxLC00Nz
+c3NTE0MzcsLTEwNDQxMzM2MzEsLTQ0OTM4NTA5NywtMTA5Njcy
+MjQ1Ml19
 -->
