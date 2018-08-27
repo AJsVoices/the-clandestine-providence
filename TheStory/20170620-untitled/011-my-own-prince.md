@@ -43,7 +43,7 @@ Giovanni sat down next to me again and shrugged.  "We were taught to shield ours
 
 He grabbed the back of my jacket and I knew there would be wrinkles I'd have to get out later.  "Watch the jacket!"  He patted my back and rubbed out the wrinkles even as he pushed me through the doors and out into the fresh air.  He lead me down the sidewalk through the strip.  It really was nice out here.
 
-"I don't do anything.  Nox does it all.  He just needs time and patience from his family and friends.  I mean it's great when I get to kick the shit out of him.  But he gives as good as he gets.  I make him work his body.  His brothers make him feel loved.  Dorian gives him something to do.  Margo makes him talk.  And when I say make, I don't me it's a forced thing, he just responds to certain things.  Fuck, for all the mess he's been since he met you again, he's been happier."
+"I don't do anything.  Nox does it all.  He just needs time and patience from his family and friends.  I mean it's great when I get to kick the shit out of him.  But he gives as good as he gets.  I make him work his body.  His brothers make him feel loved.  Dorian gives him something to do.  Margo makes him talk.  And when I say make, I don't mean it's a forced thing, he just responds to certain things.  Fuck, for all the mess he's been since he met you again, he's been happier."
 
 "All we do is fight.  He doesn't fight with you. How the fuck can he be happier."  I growled at him.
 
@@ -65,7 +65,8 @@ I slammed my shields down and the vampire  yelped.  "Fuck."
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQxMTMxNTcyOCwxMDYyNDcwMzU3LC01OT
-Q1NTIyNjcsNjYyMTE2MjQ0LC0xNTQ4MDUxMjI0LDIwODkzMjAx
-OTgsLTEyOTU5NTc1MjYsLTQ1NzU0MjcyNF19
+eyJoaXN0b3J5IjpbMTEwMDExMjUxNSwxNDExMzE1NzI4LDEwNj
+I0NzAzNTcsLTU5NDU1MjI2Nyw2NjIxMTYyNDQsLTE1NDgwNTEy
+MjQsMjA4OTMyMDE5OCwtMTI5NTk1NzUyNiwtNDU3NTQyNzI0XX
+0=
 -->
