@@ -4,6 +4,8 @@
 First Submission due: Sept 10  
 Deadline: Sept 17  
 
+## Outline
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI1MDA4MTMyNl19
+eyJoaXN0b3J5IjpbMTc4ODYwODIzMl19
 -->
