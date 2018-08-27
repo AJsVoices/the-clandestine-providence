@@ -1,55 +1,55 @@
 
-The room was always the same with it's white walls and wooden floor. The air no longer whispered the singular word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
+The room was always the same with its white walls and wooden floor. The air no longer whispered the single word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
-But it was time to go. His eyes big blue eyes sparkled as we hugged and they waved good-bye.
+But it was time to go. Alex's big blue eyes sparkled as we hugged and they waved good-bye.
 
-I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
+I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I rushed none-the-less.  Being late meant extra time, and extra time was always bad.
 
-And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class.  He wasn't there yet as I pushed the orange door open.  The door creaked  but I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was there.
+And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class.  He wasn't there yet as I pushed the orange door open.  The door creaked, but I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was there.
 
-I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me and I leaned forward.  I took a deep breath and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading but those blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
+I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
 
-The room was the same as it always was with it's white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word "monster" block after block.  Even the wind in the curtains whispered monster.
+The room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word "monster" block after block.  Even the wind in the curtains whispered monster.
 
 A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for class?"
 
 "I did.  I fell asleep waiting."  I whispered as if I were actually in class.  "You should go before..."
 
-I heard the orange door clang shut and I felt a hand on my shoulder and I winced underneath the pressure.  The wicked voice laughed at me as he sat down.  He never said anything and then as Alex had appeared, so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
+I heard the orange door clang shut and I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as Mr. Garrett sat down.  He never said anything and then as Alex had appeared, so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
 
-The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide and he struggled against his bond.
+The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bond.
 
-It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The huge ball flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
+It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire since my early days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive fireball flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me. A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again, but Mr. Garrett wasn't listening to me. A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
 And then without any warning, Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
 
-I blinked at my teacher.  He never let me go early but I wasn't about to stall with permission to leave.  I scurried across the floor on my knees and grabbed my things.  I rushed out the door and down the hall back to my room.
+I blinked at my teacher.  He never let me go early, but I wasn't about to stall with permission to leave.  I scurried across the floor on my knees and grabbed my things.  I rushed out the door and down the hall back to my room.
 
-I flopped on my bed and I tried to dream. I tried to fall asleep but the whispers in the room did not come.  And I had to go about my day.  I unfurled from my bed and I trudged out of my room.  
+I flopped on my bed, and I tried to dream. I tried to fall asleep, but the whispers in the room did not come.  And I had to go about my day.  I uncurled from my bed, and I trudged out of my room.  
 
-I wanted the day to end but it dragged on and on until it was time for lights out. I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  
+I wanted the day to end, but it dragged on and on until it was time for lights out. I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  
 
-After hours of trying, I finally drifted into the darkness.  Relief flooded my body when the room appeared.  It was the same as it always was with it's white walls and wooden floor. Self-defacing whispers of my dream replaced my relief.  Each whisper echoed my self-worth.  Colorful blocks sat stacked in bins.
+After hours of trying, I finally drifted into the darkness.  Relief flooded my body when the room appeared.  It was the same as it always was with its white walls and wooden floor. Self-defacing whispers of my dream replaced my relief.  Each whisper echoed my self-worth.  Colorful blocks sat stacked in bins.
 
-I dumped out the blocks and they clattered to the floor as the whispers got louder.  "Monster," the voice hissed out.
+I dumped out the blocks, and they clattered to the floor as the whispers got louder.  "Monster," the voice hissed out.
 
 I looked around for the voice, "Who's there?"
 
-But no one answered and I saw no one around.  The single word drifted on the air even as I tried to ignore it. "Monster." 
+But no one answered, and I saw no one around.  The single word drifted on the air even as I tried to ignore it. "Monster." 
 
-I stacked the blocks. "Monster."  And each block I placed continued to spelled out the same word.  "Monster." 
+I stacked the blocks. "Monster."  And each block I placed continued to spell out the same word.  "Monster." 
 
-And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, I couldn't find my name, but it didn't matter so I asked, "Who are you?"
+And then a voice from nowhere echoed in the room.  "Who are you?"  I turned to look, and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, I couldn't find my name, but it didn't matter, so I asked, "Who are you?"
 
 He thought about it then shrugged.  "Can I play with you?"
 
-"Sure."  I handed him a block and we started building towers with blocks that spelled out the word 'monster'.
+"Sure."  I handed him a block, and we started building towers with blocks that spelled out the word 'monster.'
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzQwNzk3MTA3LDg4MzUwODc0NiwtMTEzOD
-E4MzE2MSwtNDc3NzUxNDM3LC0xMDQ0MTMzNjMxLC00NDkzODUw
-OTcsLTEwOTY3MjI0NTJdfQ==
+eyJoaXN0b3J5IjpbLTE1MjI0NzA1ODksNzQwNzk3MTA3LDg4Mz
+UwODc0NiwtMTEzODE4MzE2MSwtNDc3NzUxNDM3LC0xMDQ0MTMz
+NjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NTJdfQ==
 -->
