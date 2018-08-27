@@ -4,7 +4,7 @@ But it was time to go. His eyes big blue eyes sparkled as we hugged and they wav
 
 I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
 
-And as always, I was early for class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was here.
+And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class.  He wasn't there yet as I pushed the orange door open.  The door creaked  but I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was there.
 
 I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall across from the orange door, under the large window that overlooked the room.  I stood with my feet directly under my hips, a foot away from the wall.  I pressed my long fingers into the wall in front of me and I leaned forward just a little.  I took a deep breath and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep without meaning to, I hadn't thought I was that tired, but Alex and I must have played really hard the night before.  The memories were fading but those blue eyes and his little voice always stayed with me.  
 
@@ -42,6 +42,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgxNzMxMTIwNCwtNDc3NzUxNDM3LC0xMD
+eyJoaXN0b3J5IjpbMTE4OTUxMTkxNCwtNDc3NzUxNDM3LC0xMD
 Q0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NTJdfQ==
 -->
