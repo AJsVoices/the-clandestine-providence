@@ -43,11 +43,13 @@ Garret tortures Alex instead of him
 
 The air no longer whispered the singular word as I hugged my good friend good-bye.  His ice blue eyes sparkled as we waved and the world shimmered and I rubbed my eyes to clear the dream from them.  It was morning - time to get to school.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time made me cry.
 
-I was early to class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone 
+I was early to class behind the orange door - Mr. Garrett's class.  I was his only student.  He wasn't even there yet as I pushed the orange door open.  The door creaked only a little and I knew where to stop it before the sound alerted anyone to my presence.  Not that anyone was here.
+
+I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall across from the orange door, under the large window that overlooked the room.  I stood with my feet directly under my hips, a foot away from the wall.  I pressed my lo
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg1OTg0NjczOSwtMTUzMDkxOTM1NCw4Nz
+eyJoaXN0b3J5IjpbMjEwMDU5NDM2OCwtMTUzMDkxOTM1NCw4Nz
 I4MjQ3NjQsLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOTI5NzY1
 NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgyMzJdfQ
 ==
