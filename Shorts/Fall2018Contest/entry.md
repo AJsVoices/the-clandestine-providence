@@ -18,9 +18,9 @@ The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow 
 
 It was a fast reaction, the fastest I'd ever done it.  The fastest I had ever formed fire willingly since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett couldn't hurt him.  I wove with quickness and clarity, a ball of fire so large that when it hit the pair it blinded the room and I feel out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  Though a soft wind blew my longer than usual hair even though there was no windows.  It felt like someone had run their fingers through my hair.  It was the only response to my pleading as  I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
-Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
+And then without any warning, Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
 
 I blinked at my teacher.  He never let me go early but I wasn't about to stall with permission to leave.  So I left as quickly as I'd come.  I scurried across the floor on my knees and grabbed my things and then rushed out the door and down the hall back to my room.
 
@@ -38,6 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjI1MDcxNzIzLC00Nzc3NTE0MzcsLTEwND
-QxMzM2MzEsLTQ0OTM4NTA5NywtMTA5NjcyMjQ1Ml19
+eyJoaXN0b3J5IjpbLTE2MDgxMzYzOTIsLTQ3Nzc1MTQzNywtMT
+A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
