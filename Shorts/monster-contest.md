@@ -19,12 +19,12 @@ Deadline: Sept 17
 10. Punishment 
 
 ### Draft # 1
-
+It always started the same.  Th
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0ODIyMTc0Myw2NzIyMjAzODcsLTYzOT
-I5NzY1NywtMzYxOTU2MTA1LC0xMzk1Nzg5MDM0LDE3ODg2MDgy
-MzJdfQ==
+eyJoaXN0b3J5IjpbLTE4ODc2MDg2MzUsLTE0ODIyMTc0Myw2Nz
+IyMjAzODcsLTYzOTI5NzY1NywtMzYxOTU2MTA1LC0xMzk1Nzg5
+MDM0LDE3ODg2MDgyMzJdfQ==
 -->
