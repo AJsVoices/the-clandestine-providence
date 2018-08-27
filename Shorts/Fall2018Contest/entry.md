@@ -26,9 +26,9 @@ I blinked at my teacher.  He never let me go early but I wasn't about to stall w
 
 I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
 
-When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The releif was replaces with the depreciating whispers of the dream.  There were blocks stacked neatly in bins and I pulled them out.  The whispers got louder.  "Monster."  The first time I heard it I looked around for the voice, "Who's there?"
+When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The releif was replaces with the depreciating whispers of the dream.  There were blocks stacked neatly in bins and I pulled them out.  The whispers got louder.  "Monster."   I looked around for the voice, "Who's there?"
 
-But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it.  I stacked the blocks and even they spelled out that one word.  Nothing else but monster.  Everywhere was monster.
+But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it. "Monster." I stacked the blocks. "Monster."  Each block I placed spelled out the same word.  "Monster."  Everywhere was monster.
 
 And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, "Who are you?"
 
@@ -38,6 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0ODQyMTAwNiwtNDc3NzUxNDM3LC0xMD
+eyJoaXN0b3J5IjpbMTIzOTk5MjM2NiwtNDc3NzUxNDM3LC0xMD
 Q0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NTJdfQ==
 -->
