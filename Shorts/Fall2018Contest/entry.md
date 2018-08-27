@@ -20,7 +20,7 @@ The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow 
 
 It was a fast reaction, the fastest I'd ever done it.  The first I had ever formed fire since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity a ball of fire so large that when it hit the pair it blinded the room and I fell out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  Though a soft wind blew my longer than usual hair even though there was no windows in the room behind the orange door.  It felt like someone had run their fingers through my hair.  It was the only response to my pleading as  I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  Though a soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone had run their fingers through my hair but the only person in the room was Mr. Garrett and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream but I couldn't.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
 And then without any warning, Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
 
@@ -42,6 +42,7 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMzgxODMxNjEsLTQ3Nzc1MTQzNywtMT
-A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
+eyJoaXN0b3J5IjpbLTc0NzYwNTgyNiwtMTEzODE4MzE2MSwtND
+c3NzUxNDM3LC0xMDQ0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3
+MjI0NTJdfQ==
 -->
