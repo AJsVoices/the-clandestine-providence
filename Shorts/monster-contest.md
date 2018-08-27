@@ -4,7 +4,8 @@
 First Submission due: Sept 10  
 Deadline: Sept 17  
 
-## Outline
+## Thought #1
+Nox and Alex's first kiss
 
 1. Little Monster
 2. Alex interrupts
@@ -29,12 +30,16 @@ I turned to see a pair of striking ice blue eyes behind me and a smirk on his li
 
 That was the key, he knew me, even though I didn't know him.  He made me happy.  My Mushu, made me happy.  It was the only name I ever knew him by.  We kept it that way since as long as I could remember.
 
+## Thought 2
+Garret tortures Alex instead of him
 
+1. The classroom
+2. Alex visits nox 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODcyODI0NzY0LC0xNDgyMjE3NDMsNjcyMj
-IwMzg3LC02MzkyOTc2NTcsLTM2MTk1NjEwNSwtMTM5NTc4OTAz
-NCwxNzg4NjA4MjMyXX0=
+eyJoaXN0b3J5IjpbLTIwNDQ0NzUyNTIsODcyODI0NzY0LC0xND
+gyMjE3NDMsNjcyMjIwMzg3LC02MzkyOTc2NTcsLTM2MTk1NjEw
+NSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX0=
 -->
