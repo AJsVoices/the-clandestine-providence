@@ -13,9 +13,11 @@ Deadline: Sept 17
 5. Nightmare
 6. Wake Up
 
-1. Hunger
-2.  
+7. Hunger
+8.  Food arrives
+9. Denied
+10. Punishment 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM2MTk1NjEwNSwtMTM5NTc4OTAzNCwxNz
-g4NjA4MjMyXX0=
+eyJoaXN0b3J5IjpbLTYzOTI5NzY1NywtMzYxOTU2MTA1LC0xMz
+k1Nzg5MDM0LDE3ODg2MDgyMzJdfQ==
 -->
