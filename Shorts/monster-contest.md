@@ -6,7 +6,11 @@ Deadline: Sept 17
 
 ## Outline
 
-
+1. Little Monster
+2. Alex interrupts
+3. Teenage boys
+4. Taken away by
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
+eyJoaXN0b3J5IjpbLTgxNDYxMjk2OCwtMTM5NTc4OTAzNCwxNz
+g4NjA4MjMyXX0=
 -->
