@@ -26,7 +26,9 @@ I blinked at my teacher.  He never let me go early but I wasn't about to stall w
 
 I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
 
-When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The relief was replaced with my self-defacing whispers of the dream.  There were blocks stacked neatly in bins and I pulled them out.  The whispers got louder.  "Monster."   I looked around for the voice, "Who's there?"
+When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The relief was replaced with my self-defacing whispers of the dream - my self-worth echoed in each whisper.  There were blocks stacked neatly in bins and I pulled them out as the whispers got louder.  "Monster."   
+
+I looked around for the voice, "Who's there?"
 
 But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it. "Monster." I stacked the blocks. "Monster."  Each block I placed spelled out the same word.  "Monster."  Everywhere was monster.
 
@@ -38,6 +40,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwODYzNTA0MzgsLTQ3Nzc1MTQzNywtMT
+eyJoaXN0b3J5IjpbLTE5MDc5ODM1MzgsLTQ3Nzc1MTQzNywtMT
 A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
