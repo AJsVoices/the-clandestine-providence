@@ -14,7 +14,7 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 I heard the orange door clang shut and I felt a hand on my shoulder and I winced underneath the pressure.  The wicked voice laughed at me as he sat down.  He never said anything and then, just as Alex had appeared so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
 
-The glowing red eyes looked from me, to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up.  My friend couldn't scream, his mouth was covered.  
+The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  My friend couldn't scream, his mouth was covered.  
 
 It was a fast reaction, the fastest I'd ever done it.  The fastest I had ever formed fire willingly since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett couldn't hurt him.  I wove with quickness and clarity, a ball of fire so large that when it hit the pair it blinded the room and I feel out of the dream.
 
@@ -38,6 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3Nzc1MTQzNywtMTA0NDEzMzYzMSwtND
-Q5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
+eyJoaXN0b3J5IjpbNjI1MDcxNzIzLC00Nzc3NTE0MzcsLTEwND
+QxMzM2MzEsLTQ0OTM4NTA5NywtMTA5NjcyMjQ1Ml19
 -->
