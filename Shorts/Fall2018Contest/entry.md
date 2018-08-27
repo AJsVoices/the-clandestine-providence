@@ -26,7 +26,7 @@ I blinked at my teacher.  He never let me go early but I wasn't about to stall w
 
 I flopped on my bed and I tried to dream.  Tried to fall asleep but the silence of the room did not come.  And I had to go about my day.  I wanted the day to end so badly but it dragged on and on until it was time for lights out and I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  But I was awake for hours trying to sleep.
 
-When I drifted into the darkness finally I was releived to see the room.  But I didn't remember why I was releived to see the room. There were blocks stacked neatly in bins and I pulled them out as the whispers started, "monster."  The first time I heard it I looked around for the voice, "Who's there?"
+When I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor.  But I didn't remember why I was releived to see the room. There were blocks stacked neatly in bins and I pulled them out as the whispers started, "monster."  The first time I heard it I looked around for the voice, "Who's there?"
 
 But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it.  I stacked the blocks and even they spelled out that one word.  Nothing else but monster.  Everywhere was monster.
 
@@ -38,6 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MDgxMzYzOTIsLTQ3Nzc1MTQzNywtMT
+eyJoaXN0b3J5IjpbLTExNjk0NzEzNDksLTQ3Nzc1MTQzNywtMT
 A0NDEzMzYzMSwtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
