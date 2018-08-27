@@ -18,7 +18,8 @@ Deadline: Sept 17
 9. Denied
 10. Punishment 
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg0ODg2MDY2MSwtNjM5Mjk3NjU3LC0zNj
-E5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
+eyJoaXN0b3J5IjpbNjcyMjIwMzg3LC02MzkyOTc2NTcsLTM2MT
+k1NjEwNSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX0=
 -->
