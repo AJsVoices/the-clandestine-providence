@@ -30,11 +30,13 @@ I flopped on my bed and I tried to dream. I tried to fall asleep but the whisper
 
 I wanted the day to end so badly but it dragged on and on until it was time for lights out. I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  
 
-After hours of trying, I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The relief was replaced with the self-defacing whispers of my dream - my self-worth echoed in each whisper.  There were blocks stacked neatly in bins and I pulled them out as the whispers got louder.  "Monster."   
+After hours of trying, I finally drifted into the darkness I was relieved to see the room - the same as it always was with it's white walls and wooden floor. The relief was replaced with the self-defacing whispers of my dream - my self-worth echoing in each whisper.  There were blocks stacked neatly in bins and I pulled them out as the whispers got louder.  "Monster," the voice hissed out.
 
 I looked around for the voice, "Who's there?"
 
-But no one answered.  I saw no one.  The single word drifted on the air even as I tried to ignore it. "Monster." I stacked the blocks. "Monster."  Each block I placed spelled out the same word.  "Monster."  Everywhere was monster.
+But no one answered and I saw no one around.  The single word drifted on the air even as I tried to ignore it. "Monster." 
+
+I stacked the blocks. "Monster."  And each block I placed continued to spelled out the same word.  "Monster." 
 
 And then a voice from no where echoed in the room.  "Who are you?"  I turned to look and I saw the largest pair of ice blue eyes smiling back at me.  I shook my head, I couldn't find my name, but it didn't matter so I asked, "Who are you?"
 
@@ -44,7 +46,7 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTgzMjUzMzE4LC0xMTM4MTgzMTYxLC00Nz
-c3NTE0MzcsLTEwNDQxMzM2MzEsLTQ0OTM4NTA5NywtMTA5Njcy
-MjQ1Ml19
+eyJoaXN0b3J5IjpbMTUxNjkxOTQ4OCwtMTEzODE4MzE2MSwtND
+c3NzUxNDM3LC0xMDQ0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3
+MjI0NTJdfQ==
 -->
