@@ -59,12 +59,11 @@ The glowing red eyes looked from me, to Alex.  I screamed, "No!"  And the shadow
 
 It was a fast reaction, the fastest I'd ever done it.  The fastest I had ever formed fire willingly since my first days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett couldn't hurt him.  I wove with quickness and clarity, a ball of fire so large that when it hit the pair it blinded the room and I feel out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't. 
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt Alex.  I'll do anything - everything."  I begged and pleaded over and over again, but Mr. Garrett wasn't listening to me.  I tried to get back into the dream but I couldn't.  My heart was racing, my 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MjgyNTAzMTYsLTE1MzA5MTkzNTQsOD
-cyODI0NzY0LC0xNDgyMjE3NDMsNjcyMjIwMzg3LC02MzkyOTc2
-NTcsLTM2MTk1NjEwNSwtMTM5NTc4OTAzNCwxNzg4NjA4MjMyXX
-0=
+eyJoaXN0b3J5IjpbNTQ0OTc2NDMzLC0xNTMwOTE5MzU0LDg3Mj
+gyNDc2NCwtMTQ4MjIxNzQzLDY3MjIyMDM4NywtNjM5Mjk3NjU3
+LC0zNjE5NTYxMDUsLTEzOTU3ODkwMzQsMTc4ODYwODIzMl19
 -->
