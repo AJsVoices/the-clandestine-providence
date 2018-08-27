@@ -1,4 +1,4 @@
-The room was always the same with it's white walls and wooden floor.  The only real color was the paining on the wall or a tree in a foreign landscape and the blocks piled high in their colorful bins.  Alex and I had played all night long.  Building towers and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh, but it was time to go and the air no longer whispered the singular word as I hugged my good friend, Alex,  good-bye.  His ice blue eyes sparkled while he waved.
+The room was always the same with it's white walls and wooden floor.  The only real color was the painting on the wall or a tree in a foreign landscape and the blocks piled high in their colorful bins.  Alex and I had played all night long.  Building towers and taking turns stomping on them like we were Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh, but it was time to go and the air no longer whispered the singular word as I hugged my good friend, Alex,  good-bye.  His ice blue eyes sparkled while he waved.
 
 The world shimmered as I rubbed my eyes to clear the dream from them.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine.  I wasn't going to be late, but I hurried none-the-less.  Being late meant extra time, and extra time was always a bad.
 
@@ -38,5 +38,6 @@ He shrugged.  "Can I play with you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ0OTM4NTA5NywtMTA5NjcyMjQ1Ml19
+eyJoaXN0b3J5IjpbMjQ5Nzk3MjEsLTQ0OTM4NTA5NywtMTA5Nj
+cyMjQ1Ml19
 -->
