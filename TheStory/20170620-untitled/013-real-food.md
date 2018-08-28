@@ -21,9 +21,14 @@ Ant shook his head.  "No, I'm hungry.  And I feed before I left so I'm good, but
 
 "I'm work?"  
 
-"No.  You are a fucking coincidence.  A theif stole something from my mother, and the guy who was holding it doesn't want mother to know so while she's in Italy incommunicado he asked me to get it.  And with Jack gone, I needed help so I asked
+"No.  You are a fucking coincidence.  A theif stole something from my mother, and the guy who was holding it doesn't want mother to know so while she's in Italy incommunicado he asked me to get it.  And with Jack gone, I needed help so I asked Nox.  He found the answer in hours and sent me here.  He still thinks you are avoiding him in New York.  Doesn't even think you left, he's a fool."  Ant sighed.   "I should go."
+
+I should have let him go.  "Benji said the same thing."
+
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIyMTYwMjU2OSwtMjA4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbLTEyNzExNjY1NTMsLTIwODg3NDY2MTJdfQ
+==
 -->
