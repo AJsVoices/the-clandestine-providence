@@ -1,4 +1,4 @@
-*Two boys played as the Umbra watched through the window of time and space.  Chaos and Order looked upon them and smiled.*
+_Two boys played as the Umbra watched through the window of time and space.  Chaos and Order looked upon them and smiled._
 
 ***
 
@@ -52,12 +52,12 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 ****
 
-*The Umbra spoke cryptically, "A favor asked the price owed."  Chaos smiled.  But Order frowned as they watched the boys play even though they didn't know each other anymore.*
+_The Umbra spoke cryptically, "A favor asked the price owed."  Chaos smiled.  But Order frowned as they watched the boys play even though they didn't know each other anymore._
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMTUxNTY4NzEsLTE1MjI0NzA1ODksNz
-QwNzk3MTA3LDg4MzUwODc0NiwtMTEzODE4MzE2MSwtNDc3NzUx
-NDM3LC0xMDQ0MTMzNjMxLC00NDkzODUwOTcsLTEwOTY3MjI0NT
-JdfQ==
+eyJoaXN0b3J5IjpbLTU5MzY2OTkzLC0xMTE1MTU2ODcxLC0xNT
+IyNDcwNTg5LDc0MDc5NzEwNyw4ODM1MDg3NDYsLTExMzgxODMx
+NjEsLTQ3Nzc1MTQzNywtMTA0NDEzMzYzMSwtNDQ5Mzg1MDk3LC
+0xMDk2NzIyNDUyXX0=
 -->
