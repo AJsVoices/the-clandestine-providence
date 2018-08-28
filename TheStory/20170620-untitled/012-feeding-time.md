@@ -19,7 +19,13 @@ I nodded, though I didn't know why he wanted me to, but he didn't wait for me to
 
 "Fuck no.  But I like you.  Please feed?"  The man begged as he tilted his head to the side.   But inside he was shaking.  I don't know why I let Marcus talk me into this.  I don't want to be here.
 
-I hook my head, 
+I hook my head, "He doesn't want to be here."
+
+Ant smirked, "Perfect."  Ant looked deep into the man's eyes and Ant spoke slowly and clearly, "You  never met me.  You don't want to be here, go home to your family and forget about today."
+
+"So why did you bring me here?"  
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NjI1MzUwODUsMTUxMzQ0NzY0NF19
+eyJoaXN0b3J5IjpbMTc1NjAwMDMxOCwxNTEzNDQ3NjQ0XX0=
 -->
