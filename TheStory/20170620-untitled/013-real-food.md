@@ -73,10 +73,10 @@ He laughed, "Just like you asking Sage to do some work for the Venatori.  That o
 
 "Sage?  I didn.... The Wicked Truth is Nox's best friend?"
 
-Ant nodded.  "So yeah, you see all of us know the duplicity of James Hutton et al.  And we don't tell him, because he's a broken bastard who we love too much to hurt.  After all those forgotten dreams about you"
+Ant nodded.  "So yeah, you see all of us know the duplicity of James Hutton et al.  And we don't tell him, because he's a broken bastard who we love too much to hurt.  I'll drop another bomb for you.  He's working on some regression therapy - remembering all your dreams.  Fucking hope."  The vampire stood up and pulled out his wallet and dropped cash on the table, another hundred.  "Have a good night, Mr. Hutton."
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA2NTIwMTUyNSwxODM3MzY5MjYsLTg0Nj
-c4ODY4NiwtMTI3MTE2NjU1MywtMjA4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbLTE5ODA3MjA0MzYsMTgzNzM2OTI2LC04ND
+Y3ODg2ODYsLTEyNzExNjY1NTMsLTIwODg3NDY2MTJdfQ==
 -->
