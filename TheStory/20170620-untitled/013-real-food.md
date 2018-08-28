@@ -61,9 +61,9 @@ Ant laughed.  "No man.  I'm just talking.   Why here?"
 
 "Benji needed help."  I lied.  
 
-Ant nodded, "Uh huh."  And then he 
+Ant nodded, "Uh huh."  And then he leaned back in the booth and stared at the ceiling waiting for our food in silence.  I guess he was done talking.  "No, you are annoyed and I can't stop feeling like Nox is better off without you.  So I'm going to shut up."  He leveled his gaze at me, "
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM3Nzg4Nzk0MSwtMTI3MTE2NjU1MywtMj
+eyJoaXN0b3J5IjpbLTg0Njc4ODY4NiwtMTI3MTE2NjU1MywtMj
 A4ODc0NjYxMl19
 -->
