@@ -25,7 +25,15 @@ Ant smirked, "Perfect."  Ant looked deep into the man's eyes and Ant spoke slowl
 
 "So why did you bring me here?"  
 
+"You haven't figured it out?"
 
+I shrugged, "I'm dumb explain it to me."
+
+"Outside."  Ant said grabbing my elbow again and guiding me through the crowd.  Every eye turning still and every vampire swearing under their breath.
+
+"You really can't help it can you?"  I said as we stepped out into the cool night.
+
+Ant shook his head, "No more than your boy can help being what he is.  We can't turn it off anymore than you can turn off the telepathy
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1NjAwMDMxOCwxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbLTEyNjk0MjgxMzAsMTUxMzQ0NzY0NF19
 -->
