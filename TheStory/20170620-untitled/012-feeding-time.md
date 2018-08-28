@@ -5,7 +5,9 @@ We walked through the strip and down a side street then down an alley and I was 
 
 Yeah that was what I needed to have Abraham mad at me even before he found out I was conning him.  I followed closely on the tall  Italian vampires heels and I saw the reaction to people standing near by.  The women and even the men that I could read were all lured to him.  Their eyes drawn to him but once he was away whatever vampire they were being seduced by pulled their attention back.  And I only knew they were vampires because I couldn't read them.
 
-We were at some sort of rave.  The music was loud and there were a ton of people.  Ant stopped at a bar and ordered me a whiskey.  "Don't order yourself.  You are mine for all intensive purposes if
+We were at some sort of rave.  The music was loud and there were a ton of people.  Ant stopped at a bar and ordered me a whiskey.  "Don't order yourself.  You are mine for all intensive purposes if anyone asks.  But you should be safe here."
+
+I didn't know what to say. But he slipped off into the crowd and I watched as he came on to a man.  It wasn't so much as he came on to him as the man thrust himself at him.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzM0MDcxMDg4LDE1MTM0NDc2NDRdfQ==
+eyJoaXN0b3J5IjpbMTc2ODc5MjYxMCwxNTEzNDQ3NjQ0XX0=
 -->
