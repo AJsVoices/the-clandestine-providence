@@ -41,7 +41,9 @@ Ant shook his head, "No more than your boy can help being what he is.  We can't 
 
 "Anyone ever tell you, you talk too much?"
 
-Ant laughed, "I'm sounding like him aren't I?  But I don't know how to make it shorter.  I am what Ryan is to my mother.  His vampire servant.  The bond is unbreakable, I've tried, mother has tried, hell we've convinced Nox to do things to try to break
+Ant laughed, "I'm sounding like him aren't I?  But I don't know how to make it shorter.  I am what Ryan is to my mother.  His vampire servant.  The bond is unbreakable, I've tried, mother has tried, hell we've convinced Nox to do things to try to break it under various guises.  I accept it, and honestly I could have a much worse life."
+
+II
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5OTgxMDk2OTUsMTUxMzQ0NzY0NF19
+eyJoaXN0b3J5IjpbLTk0NzM4MzkyNCwxNTEzNDQ3NjQ0XX0=
 -->
