@@ -43,7 +43,9 @@ Ant shook his head, "No more than your boy can help being what he is.  We can't 
 
 Ant laughed, "I'm sounding like him aren't I?  But I don't know how to make it shorter.  I am what Ryan is to my mother.  His vampire servant.  The bond is unbreakable, I've tried, mother has tried, hell we've convinced Nox to do things to try to break it under various guises.  I accept it, and honestly I could have a much worse life."
 
-II
+I shook my head, "So you what are married to him?"
+
+"It's not like that.  I think part of his healthy outlook on life is that he draws upon my strength without realizing it.  But I think it's more than that.  I think he's connected to you, he connected to his brothers, all in the same short time span.  Family is what he wants, and he got it, he j
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk0NzM4MzkyNCwxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbLTQwNzk5ODUxNywxNTEzNDQ3NjQ0XX0=
 -->
