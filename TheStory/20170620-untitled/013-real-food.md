@@ -73,10 +73,10 @@ He laughed, "Just like you asking Sage to do some work for the Venatori.  That o
 
 "Sage?  I didn.... The Wicked Truth is Nox's best friend?"
 
-Ant nodded.  "So yeah, you see all of us know the duplicity of James Hutton et al.  And we don't tell him, because he's a broken bastard who we love too much to hurt."
+Ant nodded.  "So yeah, you see all of us know the duplicity of James Hutton et al.  And we don't tell him, because he's a broken bastard who we love too much to hurt.  After all those forgotten dreams about you"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzY4NDY4MzMzLDE4MzczNjkyNiwtODQ2Nz
-g4Njg2LC0xMjcxMTY2NTUzLC0yMDg4NzQ2NjEyXX0=
+eyJoaXN0b3J5IjpbMjA2NTIwMTUyNSwxODM3MzY5MjYsLTg0Nj
+c4ODY4NiwtMTI3MTE2NjU1MywtMjA4ODc0NjYxMl19
 -->
