@@ -23,12 +23,21 @@ Ant shook his head.  "No, I'm hungry.  And I feed before I left so I'm good, but
 
 "No.  You are a fucking coincidence.  A theif stole something from my mother, and the guy who was holding it doesn't want mother to know so while she's in Italy incommunicado he asked me to get it.  And with Jack gone, I needed help so I asked Nox.  He found the answer in hours and sent me here.  He still thinks you are avoiding him in New York.  Doesn't even think you left, he's a fool."  Ant sighed.   "I should go."
 
-I should have let him go.  "Benji said the same thing."
+I should have let him go.  "Benji said the same thing.  It's over."
+
+"He doesn't think so."
+
+The waitress chose that moment to come over with a pot of burnt coffee and I frowned.  "Can I help you dears?"
+
+Ant looked at her, "Two breakfast specials."
+
+I glared at him and he grinned, "That's for me, I'm not ordering for you."
+
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNzExNjY1NTMsLTIwODg3NDY2MTJdfQ
-==
+eyJoaXN0b3J5IjpbLTU2NTU4NTQyOCwtMTI3MTE2NjU1MywtMj
+A4ODc0NjYxMl19
 -->
