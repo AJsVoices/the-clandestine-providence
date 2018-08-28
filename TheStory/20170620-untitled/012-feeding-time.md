@@ -37,7 +37,11 @@ Ant shook his head, "No more than your boy can help being what he is.  We can't 
 
 "I can choose not to read minds."
 
-"And I can hide behind my well trained iron-clad shield.  Just as Nox can hide inside his own.  But proximity makes it stronger.  And I'm drawn to your boyfriend through much more powerful magic than the lust of my bite.  The one time we almost made out, the one time I was going to fuck your boyfriend, was the only time he needed to extend his power to me.  I fed on him, we shared blood, and now I'm fucking bonded to him.  But he doesn't know.  He has no idea the power he holds over me, or anyone really.
+"And I can hide behind my well trained iron-clad shield.  Just as Nox can hide inside his own.  But proximity makes it stronger.  And I'm drawn to your boyfriend through much more powerful magic than the lust of my bite.  The one time we almost made out, the one time I was going to fuck your boyfriend, was the only time he needed to extend his power to me.  I fed on him, we shared blood, and now I'm fucking bonded to him.  But he doesn't know.  He has no idea the power he holds over me, or anyone really."
+
+"Anyone ever tell you, you talk too much?"
+
+Ant laughed, "I'm sounding like him aren't I?  But I don't know how to make it shorter.  I am what Ryan is to my mother.  His vampire servant.  The bond is unbreakable, I've tried, mother has tried, hell we've convinced Nox to do things to try to break
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMTU4MjEzMDMsMTUxMzQ0NzY0NF19
+eyJoaXN0b3J5IjpbLTE5OTgxMDk2OTUsMTUxMzQ0NzY0NF19
 -->
