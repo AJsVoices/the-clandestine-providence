@@ -41,12 +41,20 @@ I smirked.  "He loved feeding me."
 
 "And you loved eating."  Ant patted his tummy and laughed.
 
-"Fuck 
+"Fuck you!"  I growled.
+
+"He alright?" I asked stupidly.  I didn't care.  I didn't want to know.
+
+Ant shrugged.  "He was. Rider and Laker were with him.  And Sage and Mia spent the first night with him."
+
+"First night?"
+
+I sigh
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MTA2NDE1NDEsLTEyNzExNjY1NTMsLT
-IwODg3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbLTM4NDA2NjY5MywtMTI3MTE2NjU1MywtMj
+A4ODc0NjYxMl19
 -->
