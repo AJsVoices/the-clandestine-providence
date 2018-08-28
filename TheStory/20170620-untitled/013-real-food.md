@@ -53,12 +53,12 @@ Ant shrugged.  "He was. Rider and Laker were with him.  And Sage and Mia spent t
 
 "See he doesn't need me."  I said.
 
-Ant shook his head, "
+Ant shook his head, "You really are an idiot.  He doesn't own much, but what he does he made sure there was room for you in his life.  Fucking over half the closet is empty when he could have spread things out.  The drawers were cleared.  He wanted a life with you.  He'll be devastated for months, if I can pull him out of it at all."
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MTQxNTYzMDAsLTEyNzExNjY1NTMsLT
+eyJoaXN0b3J5IjpbLTEzNTQ1ODk1NDgsLTEyNzExNjY1NTMsLT
 IwODg3NDY2MTJdfQ==
 -->
