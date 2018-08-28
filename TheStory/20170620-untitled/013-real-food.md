@@ -65,8 +65,16 @@ Ant nodded, "Uh huh."  And then he leaned back in the booth and stared at the ce
 
 "You aren't going to tell him?"  I was shocked.
 
-Ant shook his head, "I'm not going to break his heart.  He can be d
+Ant shook his head, "I'm not going to break his heart.  He can be deluded for a lot longer as far as I care."
+
+"Some friend you are."
+
+He laughed, "Just like you asking Sage to do some work for the Venatori.  That opening I made works two ways."
+
+"Sage?  I didn.... The Wicked Truth is Nox's best friend?"
+
+Ant nodded.  "So yeah, you see all of us know the duplicity of James Hutton et al.  And we don't tell him, because he's br
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2Mjc3ODk3MTMsMTgzNzM2OTI2LC04ND
+eyJoaXN0b3J5IjpbLTEwMzk3OTM0ODcsMTgzNzM2OTI2LC04ND
 Y3ODg2ODYsLTEyNzExNjY1NTMsLTIwODg3NDY2MTJdfQ==
 -->
