@@ -7,7 +7,9 @@ Yeah that was what I needed to have Abraham mad at me even before he found out I
 
 We were at some sort of rave.  The music was loud and there were a ton of people.  Ant stopped at a bar and ordered me a whiskey.  "Don't order yourself.  You are mine for all intensive purposes if anyone asks.  But you should be safe here."
 
-I didn't know what to say. But he slipped off into the crowd and I watched as he came on to a man.  It wasn't so much as he came on to him as the man thrust himself at him.  
+I didn't know what to say. But he slipped off into the crowd and I watched as he came on to a man.  It wasn't so much as he came on to him as the man thrust himself at him.  There were other people doing the same.  Every vampire in the room was glaring at him.  I even heard whispers, "Asshole.  Stealing our people."  Some even swore to his face and he just smiled at them.  It wasn't apologetic but no one made a move against him.  
+
+But Ant dragged the man back to him, it w
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc2ODc5MjYxMCwxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbLTIwOTAzMzE2OSwxNTEzNDQ3NjQ0XX0=
 -->
