@@ -13,7 +13,13 @@ But Ant dragged the man back to him, it wasn't so much as dragging as the man hu
 
 "Yes."  The words came out breathless.  
 
-"Answer a few questions and I'll gladly pay your price."   He said.  He looked at me and smiled, "
+"Answer a few questions and I'll gladly pay your price."   He said.  He looked at me and smiled, "You can read him?"
+
+I nodded, though I didn't know why he wanted me to, but he didn't wait for me to ask as he looked at the man again.  "Do you like men?"
+
+"Fuck no.  But I like you.  Please feed?"  The man begged as he tilted his head to the side.   But inside he was shaking.  I don't know why I let Marcus talk me into this.  I don't want to be here.
+
+I hook my head, 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA0MDc2NzMxNywxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbLTE0NjI1MzUwODUsMTUxMzQ0NzY0NF19
 -->
