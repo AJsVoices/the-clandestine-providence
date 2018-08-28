@@ -20,7 +20,7 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 I heard the orange door clang shut and I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as Mr. Garrett sat down.  He never said anything and then as Alex had appeared, so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
 
-The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bond.
+The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bonds.
 
 It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire since my early days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive fireball flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
@@ -56,8 +56,8 @@ _The Umbra spoke cryptically, "A favor asked the price owed."  Chaos smiled.  Bu
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU5MzY2OTkzLC0xMTE1MTU2ODcxLC0xNT
-IyNDcwNTg5LDc0MDc5NzEwNyw4ODM1MDg3NDYsLTExMzgxODMx
-NjEsLTQ3Nzc1MTQzNywtMTA0NDEzMzYzMSwtNDQ5Mzg1MDk3LC
-0xMDk2NzIyNDUyXX0=
+eyJoaXN0b3J5IjpbLTEyNTQ5ODM5ODIsLTU5MzY2OTkzLC0xMT
+E1MTU2ODcxLC0xNTIyNDcwNTg5LDc0MDc5NzEwNyw4ODM1MDg3
+NDYsLTExMzgxODMxNjEsLTQ3Nzc1MTQzNywtMTA0NDEzMzYzMS
+wtNDQ5Mzg1MDk3LC0xMDk2NzIyNDUyXX0=
 -->
