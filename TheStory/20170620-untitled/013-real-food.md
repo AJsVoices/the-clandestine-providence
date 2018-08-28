@@ -33,11 +33,20 @@ Ant looked at her, "Two breakfast specials."
 
 I glared at him and he grinned, "That's for me, I'm not ordering for you."
 
+I looked at the skinny red head and smiled at her, "I'll have pancakes and strawberry icecream and large order of fries."  She didn't blink but when I turned my attention back to the vampire he was smirking. 
+
+"He's gotta fucking love feeding you, all those carbs and sugar and fat."
+
+I smirked.  "He loved feeding me."
+
+"And you loved eating."  Ant patted his tummy and laughed.
+
+"Fuck 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2NTU4NTQyOCwtMTI3MTE2NjU1MywtMj
-A4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbLTE3MTA2NDE1NDEsLTEyNzExNjY1NTMsLT
+IwODg3NDY2MTJdfQ==
 -->
