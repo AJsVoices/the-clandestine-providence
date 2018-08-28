@@ -9,7 +9,11 @@ We were at some sort of rave.  The music was loud and there were a ton of people
 
 I didn't know what to say. But he slipped off into the crowd and I watched as he came on to a man.  It wasn't so much as he came on to him as the man thrust himself at him.  There were other people doing the same.  Every vampire in the room was glaring at him.  I even heard whispers, "Asshole.  Stealing our people."  Some even swore to his face and he just smiled at them.  It wasn't apologetic but no one made a move against him.  
 
-But Ant dragged the man back to him, it w
+But Ant dragged the man back to him, it wasn't so much as dragging as the man hung on him.  The vampire and his prey stood in front of me.  He turned the man to look at him, "Do you want me to bite you?"
+
+"Yes."  The words came out breathless.  
+
+"Answer a few questions and I'll gladly pay your price."   He said.  He looked at me and smiled, "
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwOTAzMzE2OSwxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbMjA0MDc2NzMxNywxNTEzNDQ3NjQ0XX0=
 -->
