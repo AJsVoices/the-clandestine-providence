@@ -17,9 +17,13 @@ His smirk grew wider, "You wanted to know what I was thinking."  _A stray though
 
 "You want to bite me?"
 
-Ant shook his head.  "No, I'm hungry.  And I feed before I left
+Ant shook his head.  "No, I'm hungry.  And I feed before I left so I'm good, but that doesn't eliminate the need to fuel my body while I work."
+
+"I'm work?"  
+
+"No.  You are a fucking coincidence.  A theif stole something from my mother, and the guy who was holding it doesn't want mother to know so while she's in Italy incommunicado he asked me to get it.  And with Jack gone, I needed help so I asked
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDQ1OTk1Mjk4LC0yMDg4NzQ2NjEyXX0=
+eyJoaXN0b3J5IjpbMTIyMTYwMjU2OSwtMjA4ODc0NjYxMl19
 -->
