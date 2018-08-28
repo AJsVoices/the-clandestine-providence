@@ -47,14 +47,18 @@ I smirked.  "He loved feeding me."
 
 Ant shrugged.  "He was. Rider and Laker were with him.  And Sage and Mia spent the first night with him."
 
-"First night?"
+"First night?" I sighed.  I shouldn't care but a pang of jealousy hit at the mention of his childhood friends.  "Why did they stay?"
 
-I sigh
+"Nox got a new place.  He's freaking the fuck out about it.  It's big and empty and if it weren't for his brothers he'd probably be sitting in a corner trying to keep himself sane."
+
+"See he doesn't need me."  I said.
+
+Ant shook his head, "
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM4NDA2NjY5MywtMTI3MTE2NjU1MywtMj
-A4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbLTE0MTQxNTYzMDAsLTEyNzExNjY1NTMsLT
+IwODg3NDY2MTJdfQ==
 -->
