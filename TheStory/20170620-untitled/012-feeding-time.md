@@ -45,7 +45,9 @@ Ant laughed, "I'm sounding like him aren't I?  But I don't know how to make it s
 
 I shook my head, "So you what are married to him?"
 
-"It's not like that.  I think part of his healthy outlook on life is that he draws upon my strength without realizing it.  But I think it's more than that.  I think he's connected to you, he connected to his brothers, all in the same short time span.  Family is what he wants, and he got it, he j
+"It's not like that.  I think part of his healthy outlook on life is that he draws upon my strength without realizing it.  But I think it's more than that.  I think he's connected to you, he connected to his brothers, all in the same short time span.  Family is what he wants, and he got it, he just doesn't see it yet.  And he won't ever see if you leave him."
+
+I rolled my eyes, and just like that we were back to talking about Nox fucking Sétanta.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQwNzk5ODUxNywxNTEzNDQ3NjQ0XX0=
+eyJoaXN0b3J5IjpbNDEwMjkzMjEyLDE1MTM0NDc2NDRdfQ==
 -->
