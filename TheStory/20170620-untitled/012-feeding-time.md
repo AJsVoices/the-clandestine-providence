@@ -33,7 +33,11 @@ I shrugged, "I'm dumb explain it to me."
 
 "You really can't help it can you?"  I said as we stepped out into the cool night.
 
-Ant shook his head, "No more than your boy can help being what he is.  We can't turn it off anymore than you can turn off the telepathy
+Ant shook his head, "No more than your boy can help being what he is.  We can't turn it off anymore than you can turn off the telepathy."
+
+"I can choose not to read minds."
+
+"And I can hide behind my well trained iron-clad shield.  Just as Nox can hide inside his own.  But proximity makes it stronger.  And I'm drawn to your boyfriend through much more powerful magic than the lust of my bite.  The one time we almost made out, the one time I was going to fuck your boyfriend, wa
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNjk0MjgxMzAsMTUxMzQ0NzY0NF19
+eyJoaXN0b3J5IjpbMTkzOTY1NTIzMCwxNTEzNDQ3NjQ0XX0=
 -->
