@@ -54,11 +54,16 @@ Ant shrugged.  "He was. Rider and Laker were with him.  And Sage and Mia spent t
 "See he doesn't need me."  I said.
 
 Ant shook his head, "You really are an idiot.  He doesn't own much, but what he does he made sure there was room for you in his life.  Fucking over half the closet is empty when he could have spread things out.  The drawers were cleared.  He wanted a life with you.  He'll be devastated for months, if I can pull him out of it at all."
+ 
+ "Are you trying to make me feel bad for him?"
 
+Ant laughed.  "No man.  I'm just talking.   Why here?"
 
+"Benji needed help."  I lied.  
 
+Ant nodded, "Uh huh."  And then he 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNTQ1ODk1NDgsLTEyNzExNjY1NTMsLT
-IwODg3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbLTM3Nzg4Nzk0MSwtMTI3MTE2NjU1MywtMj
+A4ODc0NjYxMl19
 -->
