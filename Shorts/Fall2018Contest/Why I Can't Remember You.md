@@ -73,7 +73,7 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 ****
 
-I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
+I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, became friends and yet I never remembered who he was. I was a blank slate, night after frustrating night.  Alex had to hate me for it and all because Garrett fucking Spence
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1NjE1NTI5OCwtNjg2NTQxODldfQ==
+eyJoaXN0b3J5IjpbNTgzMTA5Mjc5LC02ODY1NDE4OV19
 -->
