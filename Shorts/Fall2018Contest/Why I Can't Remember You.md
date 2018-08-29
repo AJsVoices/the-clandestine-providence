@@ -1,5 +1,5 @@
 # Why I Can't Remember You
-
+There was one question I asked myself as I finally learned your name.  Alex.  My fucking love, my light, 
 The room was always the same with its white walls and wooden floor. The air no longer whispered the single word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
 But it was time to go. Alex's big blue eyes sparkled as we hugged and then waved good-bye.
@@ -48,7 +48,7 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 "Sure."  I handed him a block, and we started building towers with blocks that spelled out the word 'monster.'
 
-Night after night, this is how we played
+Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM1NTU5MTU5M119
+eyJoaXN0b3J5IjpbLTE5NTc4ODYzMTVdfQ==
 -->
