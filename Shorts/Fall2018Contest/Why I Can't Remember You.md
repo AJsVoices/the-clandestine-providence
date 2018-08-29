@@ -45,11 +45,15 @@ And then without any warning, Mr. Garrett patted my shoulder, "That was well don
 
 I blinked at my teacher.  He never let me go early, but I wasn't about to stall with permission to leave.  I scurried across the floor on my knees and grabbed my things.  I rushed out the door and down the hall back to my room.
 
-I flopped on my bed, and I tried to dream. I tried to fall asleep, but the whispers in the room did not come.  And I had to go about my day.  I uncurled from my bed, and I trudged out of my room.  
+I flopped on my bed, and I tried to dream. I tried to fall asleep, but the whispers in the room did not come.  And I had to go about my day.  I uncurled from my bed, and I trudged out of my room.  I wanted the day to end, but it dragged on and on until it was finally time for lights out. I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  
 
-I wanted the day to end, but it dragged on and on until it was time for lights out. I eagerly pulled my blankets over my head and blocked out all the sounds of my roommates snoring.  I needed to see him.  
+I needed to see him.  
 
-After hours of trying, I finally drifted into the darkness.  Relief flooded my body when the room appeared.  But something was different this time.  There was a soft breeze that ruffled my hair even though the curtains didn't blow. I looked around the room and saw white walls and wooden floor. Self-defacing whispers in the dream replaced my relief.  Each whisper echoed my self-worth. Colorful blocks sat stacked in bins and the painting on the wall were the only color in the room.
+After hours of trying, I finally drifted into the darkness.  Relief flooded my body when the room appeared.  
+
+But something was different this time.  There was a soft breeze that ruffled my hair even though the curtains didn't blow. I looked around the room and saw white walls and wooden floor. Self-defacing whispers in the dream replaced my relief.  
+
+Each whisper echoed my self-worth. Colorful blocks sat stacked in bins and the painting on the wall were the only color in the room.
 
 I dumped out the blocks, and they clattered to the floor as the whispers got louder.  "Monster," the voice hissed out.
 
@@ -69,5 +73,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI4NTAzNjY0NywtNjg2NTQxODldfQ==
+eyJoaXN0b3J5IjpbNzY5NzcwNTQsLTY4NjU0MTg5XX0=
 -->
