@@ -13,9 +13,11 @@ I stretched then rubbed my eyes to clear the dream from my mind.  It was morning
 
 And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class because I was dangerous.  I was a fire-starter and he was teaching me to control the fire with-in.  He hurt me because I was a slow learner.  It was for my own good, he said over and over again.
 
-He wasn't there when I pushed the orange door open.  The door didn't creak; I knew where to stop it. I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
+He wasn't there when I pushed the orange door open. I set my belongings in the corner where I always did.  I didn't take a seat, instead I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  
 
-The room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word "monster" block after block.  Even the wind in the curtains whispered monster.
+I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
+
+The dream room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word. "monster" block after block.  Even the wind in the curtains whispered monster.
 
 A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for class?"
 
@@ -63,5 +65,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MzUzNjgzMzAsLTY4NjU0MTg5XX0=
+eyJoaXN0b3J5IjpbMTAzNTkwNTA1NywtNjg2NTQxODldfQ==
 -->
