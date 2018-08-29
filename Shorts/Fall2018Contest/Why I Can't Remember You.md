@@ -22,9 +22,7 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 Alex asked, "Who?"
 
-I shook my head.  "The shadow, my demon, my monster.  You 
-
-I heard the orange door clang shut and I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as Mr. Garrett sat down.  He never said anything and then as Alex had appeared, so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
+I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything and then as Alex had appeared, so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.   never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
 
 The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bonds.
 
@@ -58,5 +56,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc4NjQzNjUyOF19
+eyJoaXN0b3J5IjpbLTIwMjI5OTkwMzNdfQ==
 -->
