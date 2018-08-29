@@ -51,19 +51,21 @@ I needed to see him.
 
 After hours of trying, I finally drifted into the darkness.  Relief flooded my body when the room appeared.  
 
-But something was different this time.  There was a soft breeze that ruffled my hair even though the curtains didn't blow. I looked around the room and saw white walls and wooden floor. Self-defacing whispers in the dream replaced my relief.  
+But something was different this time.  There was a soft breeze that ruffled my hair even though the curtains didn't blow. I looked around the room and saw white walls and wooden floor. 
 
-Each whisper echoed my self-worth. Colorful blocks sat stacked in bins and the painting on the wall were the only color in the room.
+Self-defacing whispers in the dream replaced my relief.  Each whisper echoed my self-worth. Colorful blocks sat stacked in bins and the painting on the wall were the only color in the room.
 
 I dumped out the blocks, and they clattered to the floor as the whispers got louder.  "Monster," the voice hissed out.
 
 I looked around for the voice, "Who's there?"
 
-But no one answered, and I saw no one around.  The single word drifted on the air even as I tried to ignore it. "Monster." 
+But no one answered.  The single word drifted on the air even as I tried to ignore it. "Monster." 
 
 I stacked the blocks. "Monster."  And each block I placed continued to spell out the same word.  "Monster." 
 
-And then a voice from nowhere echoed in the room.  "Who are you?"  I turned to look, and I saw a pair of familiar ice blue eyes smiling back at me. His voice made me smile, but I didn't know his name. I shook my head, I couldn't find my name either, but it didn't matter, so I asked, "Who are you?"
+And then a voice from nowhere echoed in the room.  "Who are you?"  I turned to look, and I saw a pair of familiar ice blue eyes smiling back at me. His voice made me smile, but I didn't know him. 
+
+I shook my head, I couldn't find my name either, but it didn't matter, so I asked, "Who are you?"
 
 He thought about it, he tried to say something, but when he couldn't find the words he shrugged.  "Can I play with you?"
 
@@ -73,5 +75,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY5NzcwNTQsLTY4NjU0MTg5XX0=
+eyJoaXN0b3J5IjpbMTc1NjE1NTI5OCwtNjg2NTQxODldfQ==
 -->
