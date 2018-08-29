@@ -17,7 +17,7 @@ He wasn't there when I pushed the orange door open. I set my belongings in the c
 
 I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
 
-The dream room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word. "monster" block after block.  Even the wind in the curtains whispered monster.
+The dream room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word. "monster". Block after block.  Even the wind in the curtains whispered "monster".
 
 A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for class?"
 
@@ -25,7 +25,9 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 Alex asked, "Who?"
 
-I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything and then as Alex had appeared, so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.  Mr. Garrett never looked like he did in the real world.  He was always a shadow with glowing red eyes.
+I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  
+
+I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything. And just as Alex had appeared so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.  Mr. Garrett never looked like he did in the real world.  He was always a shadow with glowing red eyes.
 
 Those glowing red eyes looked from me to Alex and a toothy grin spread across the shadow's face.  I screamed, "No!" 
 
@@ -65,5 +67,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAzNTkwNTA1NywtNjg2NTQxODldfQ==
+eyJoaXN0b3J5IjpbNzMwODMwMzk0LC02ODY1NDE4OV19
 -->
