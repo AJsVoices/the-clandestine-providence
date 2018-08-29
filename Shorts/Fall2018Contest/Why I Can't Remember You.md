@@ -60,9 +60,8 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 "Sure."  I handed him a block, and we started building towers with blocks that spelled out the word 'monster.'
 
 ****
-I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I nevere remembered who he was, it was a blank slate, night after 
 
-Night after night, this is how we played.  No names, and not even the same faces.
+I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk3NjM4MjQwNl19
+eyJoaXN0b3J5IjpbLTY4NjU0MTg5XX0=
 -->
