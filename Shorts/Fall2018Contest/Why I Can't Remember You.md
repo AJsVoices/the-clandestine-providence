@@ -27,13 +27,13 @@ Alex asked, "Who?"
 
 I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  
 
-I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything. And just as Alex had appeared so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.  Mr. Garrett never looked like he did in the real world.  He was always a shadow with glowing red eyes.
+I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything. And just as Alex had appeared so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.  
 
-Those glowing red eyes looked from me to Alex and a toothy grin spread across the shadow's face.  I screamed, "No!" 
+Mr. Garrett never looked like he did in the real world.  He was always a shadow with glowing red eyes.  Those glowing red eyes looked from me to Alex and a toothy grin spread across the shadow's face.  I screamed, "No!"
 
-The shadow wound Alex up with his long  arms and splayed him like I stood in the real world.  His shirt ripped from his body and tentacles of fire and ice, air and water formed above Alex.  He tried to scream but couldn't.   His eyes were wide and his mouth gagged with the shadows own form.  
+The shadow wound Alex up with his long arms and splayed him like I stood in the real world.  His shirt ripped from his body and tentacles of fire and ice, air and water formed above Alex.  He tried to scream but couldn't.   His eyes were wide and his mouth gagged with the shadows own form.  
 
-It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
+It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, ever since my mother sent me away.  But this was Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
 I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
 
@@ -67,5 +67,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzMwODMwMzk0LC02ODY1NDE4OV19
+eyJoaXN0b3J5IjpbNzY0ODMwMzM2LC02ODY1NDE4OV19
 -->
