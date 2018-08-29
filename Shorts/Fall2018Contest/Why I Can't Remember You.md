@@ -33,9 +33,9 @@ Mr. Garrett never looked like he did in the real world.  He was always a shadow 
 
 The shadow wound Alex up with his long arms and splayed him like I stood in the real world.  His shirt ripped from his body and tentacles of fire and ice, air and water formed above Alex.  He tried to scream but couldn't.   His eyes were wide and his mouth gagged with the shadows own form.  
 
-It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, ever since my mother sent me away.  But this was Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
+It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, ever since my mother sent me away.  But this was Alex, my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity the simplest thing I could - a ball.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begg "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
 
 A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream and was denied.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
@@ -67,5 +67,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY0ODMwMzM2LC02ODY1NDE4OV19
+eyJoaXN0b3J5IjpbMTkxNjc3ODY0NCwtNjg2NTQxODldfQ==
 -->
