@@ -1,11 +1,11 @@
 # Why I Can't Remember You
-There was one question I asked myself as I finally learned your name.  Alex.  My fucking love, my light, and you say we've been dreaming of each other since we were little.  And I don't remember.  It wasn't the first time that I laid on my bed thinking about you, delving into my dreams, looking for the answer.  "Why can't I remember you?"
+There was one question I asked myself as I finally learned your name.  Alex.  My fucking love, my light, and you say we've been dreaming of each other since we were little.  And I don't remember.  It wasn't the first time that I laid on my bed thinking about you, delving into the locked door that my childhood dreams and were stored behind, looking for the answer.  "Why can't I remember you?"
 
 ****
 
 The room was always the same with its white walls and wooden floor. The air no longer whispered the single word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
-But it was time to go. Alex's big blue eyes sparkled as we hugged and then waved good-bye.
+But it was time to go. Alex's ice blue eyes sparkled as we hugged and then waved good-bye.
 
 I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine. I wasn't going to be late, but I rushed nonetheless.  Being late meant extra time, and extra time was always bad. I said my usual mantra as I walked to class.  "Keep me safe and protect me from my demons." They were just words but I always felt safer after saying them.
 
@@ -53,5 +53,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY5NjQxOTY1N119
+eyJoaXN0b3J5IjpbLTU4NzYxNTE1XX0=
 -->
