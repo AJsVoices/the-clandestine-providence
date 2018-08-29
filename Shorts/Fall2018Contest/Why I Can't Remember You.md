@@ -22,9 +22,9 @@ A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for c
 
 Alex asked, "Who?"
 
-I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything and then as Alex had appeared, so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.   never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
+I shook my head.  "The shadow, my demon, my monster.  You don't want to be here."  I tried to get Alex to leave, but I heard the orange door clang shut in the real world. Then, I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as I heard Mr. Garrett sit down on the chair beside me.  He never said anything and then as Alex had appeared, so did he. It was how he we always had lessons, inside my head, where scars couldn't be seen.  Mr. Garrett never looked like he did in the real world.  He was always a shadow with glowing red eyes.
 
-The glowing red eyes looked from me to Alex.  I screamed, "No!"  And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bonds.
+Those glowing red eyes looked from me to Alex and a toothy grin spread across the shadow's face.  I screamed, "No!"  I knew what it would do. And the shadow smirked with a toothy grin as it wound Alex up with shadowy arms.  His eyes were wide, and he struggled against his bonds.
 
 It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire since my early days here.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive fireball flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
@@ -56,5 +56,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMjI5OTkwMzNdfQ==
+eyJoaXN0b3J5IjpbNTcwNTUzMzY4XX0=
 -->
