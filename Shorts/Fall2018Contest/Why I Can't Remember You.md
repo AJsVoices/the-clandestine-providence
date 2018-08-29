@@ -1,7 +1,7 @@
 # Why I Can't Remember You
 There was one question I asked myself after I finally learned your name.  Alex.  My fucking love, my light, and you say we've been dreaming of each other since we were little.  And I don't remember.  It wasn't the first time that I laid on my bed thinking about you, delving into the locked door that my childhood dreams and memories were stored behind, looking for the answer to the one question that plagued my mind,  "Why can't I remember you?"
 
-I watched the sequence playout like a movie in my head...
+I watched the sequence play like a movie in my head...
 ****
 
 The room was always the same with its white walls and wooden floor. The air no longer whispered the single word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
@@ -54,5 +54,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTg4MTk2NDQ3XX0=
+eyJoaXN0b3J5IjpbNDM5NjU0NTldfQ==
 -->
