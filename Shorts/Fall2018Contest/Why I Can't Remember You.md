@@ -35,9 +35,11 @@ The shadow wound Alex up with his long arms and splayed him like I stood in the 
 
 It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, ever since my mother sent me away.  But this was Alex, my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity the simplest thing I could - a ball.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begg "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  "No.  Please don't hurt, Alex.  I'll do anything - everything you want,"  I begged and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
 
-A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream and was denied.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
+A soft wind blew even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  
+
+It was the only response to my pleading as I tried to get back into the dream and was denied.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
 And then without any warning, Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
 
@@ -67,5 +69,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkxNjc3ODY0NCwtNjg2NTQxODldfQ==
+eyJoaXN0b3J5IjpbLTI4NTAzNjY0NywtNjg2NTQxODldfQ==
 -->
