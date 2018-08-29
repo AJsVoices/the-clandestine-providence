@@ -4,7 +4,7 @@ There was one question I asked myself after I finally learned your name.  Alex. 
 I watched the sequence play like a movie in my head...
 ****
 
-The room was always the same with its white walls and wooden floor. The air no longer whispered the single word, my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks.  We took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
+The room was always the same with its white walls and wooden floor. The air no longer whispered "monster", my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks and we didn't care that the only word they ever spelled was 'monster'. But we still took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
 
 But it was time to go. Alex's ice blue eyes sparkled as we hugged and then waved good-bye.
 
@@ -30,7 +30,9 @@ The shadow wound Alex up with his long  arms and splayed him like I stood in the
 
 It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, but Alex... He was my friend and I would save him, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
-I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr, but Mr. Garrett wasn't listening to me. A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream and was denied.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
+I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
+
+A soft wind blew my longer than usual hair even though there were no windows in the room behind the orange door.  It felt like someone ran their fingers through my hair.  But the only person in the room was Mr. Garrett, and he sat still as a mouse in his chair.  It was the only response to my pleading as I tried to get back into the dream and was denied.  My heart was racing, my blood pumping through my veins so hard it was all I could hear.
 
 And then without any warning, Mr. Garrett patted my shoulder, "That was well done, Nox.  You can go today.  That was excellent control."
 
@@ -58,5 +60,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM3ODA0MDgzM119
+eyJoaXN0b3J5IjpbLTE2MTQ1Mzk5NzRdfQ==
 -->
