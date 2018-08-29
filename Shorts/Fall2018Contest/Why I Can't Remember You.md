@@ -12,13 +12,17 @@ I stretched then rubbed my eyes to clear the dream from my mind.  It was morning
 
 And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class because I was dangerous.  I was a fire-starter and he was teaching me control.  He hurt me because I was a slow learner.  It was for my own good.
 
-He wasn't there yet when I pushed the orange door open.  The door didn't creak; I knew where to stop it. I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
+He wasn't there yet when I pushed the orange door open.  The door didn't creak; I knew where to stop it. I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
 
 The room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word "monster" block after block.  Even the wind in the curtains whispered monster.
 
 A familiar voice sounded behind me, "Hey, Nox, I thought you had to get up for class?"
 
-"I did.  I fell asleep waiting."  I whispered as if I were actually in class.  "You should go before..."
+"I did.  I fell asleep waiting."  I whispered as if I were actually in class.  "You should go before he comes in."
+
+Alex asked, "Who?"
+
+I shook my head.  "The shadow, my demon, my monster.  You 
 
 I heard the orange door clang shut and I felt a hand on my shoulder, and I winced underneath the pressure.  The wicked voice laughed at me as Mr. Garrett sat down.  He never said anything and then as Alex had appeared, so did he.  He never looked like he did in the real world.  It was always a shadow with glowing red eyes.  It grew bigger and bigger the closer it came.  
 
@@ -54,5 +58,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDM5NjU0NTldfQ==
+eyJoaXN0b3J5IjpbLTc4NjQzNjUyOF19
 -->
