@@ -2,6 +2,7 @@
 There was one question I asked myself after I finally learned your name.  Alex.  My fucking love, my light, and you say we've been dreaming of each other since we were little.  And I don't remember.  It wasn't the first time that I laid on my bed thinking about you, delving into the locked door that my childhood dreams and memories were stored behind, looking for the answer to the one question that plagued my mind,  "Why can't I remember you?"
 
 I watched the sequence play like a movie in my head...
+
 ****
 
 The room was always the same with its white walls and wooden floor. The air no longer whispered "monster", my demons had no hold when Alex was with me.  Alex and I had played all night long building towers with lettered blocks and we didn't care that the only word they ever spelled was 'monster'. But we still took turns stomping on them like Godzilla.  Alex even made the sounds like in the old movies.  He made me laugh.
@@ -58,7 +59,10 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 "Sure."  I handed him a block, and we started building towers with blocks that spelled out the word 'monster.'
 
+****
+I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I nevere remembered who he was, it was a blank slate, night after 
+
 Night after night, this is how we played.  No names, and not even the same faces.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MTQ1Mzk5NzRdfQ==
+eyJoaXN0b3J5IjpbMTk3NjM4MjQwNl19
 -->
