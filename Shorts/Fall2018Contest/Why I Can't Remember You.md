@@ -11,9 +11,9 @@ But it was time to go. Alex's ice blue eyes sparkled as we hugged and then waved
 
 I stretched then rubbed my eyes to clear the dream from my mind.  It was morning - time to get to class.  My roommates were still asleep as I hurried through my routine. I wasn't going to be late, but I rushed nonetheless.  Being late meant extra time, and extra time was always bad. I said my usual mantra as I walked to class.  "Keep me safe and protect me from my demons." They were just words but I always felt safer after saying them.
 
-And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class because I was dangerous.  I was a fire-starter and he was teaching me control.  He hurt me because I was a slow learner.  It was for my own good.
+And as always, I was early for class behind the orange door.  I was the only student in Mr. Garrett's class because I was dangerous.  I was a fire-starter and he was teaching me to control the fire with-in.  He hurt me because I was a slow learner.  It was for my own good, he said over and over again.
 
-He wasn't there yet when I pushed the orange door open.  The door didn't creak; I knew where to stop it. I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
+He wasn't there when I pushed the orange door open.  The door didn't creak; I knew where to stop it. I set my belongings in the corner where I always did.  I didn't take a seat, I was never allowed to sit in the room behind the orange door.  I took up my position by the wall under the large window that overlooked the room.  I stood with my feet under my hips a foot away from the wall.  I pressed my long fingers into the wall in front of me, and I leaned forward.  I took a deep breath, and I closed my eyes while I waited for Mr. Garrett to join me.  I drifted back to sleep. I hadn't thought I was that tired, but Alex and I must have played hard the night before.  The memories were fading, but those ice blue eyes and his little voice always stayed with me.   He was my best friend, my only friend.
 
 The room was the same as it always was with its white walls and wooden floor.  The blocks still scattered on the floor from last nights play session.  I picked up the little blocks we'd stacked earlier and put them in their colored bins.  Each lettered block I touched spelled out the same word "monster" block after block.  Even the wind in the curtains whispered monster.
 
@@ -29,7 +29,7 @@ Those glowing red eyes looked from me to Alex and a toothy grin spread across th
 
 The shadow wound Alex up with his long  arms and splayed him like I stood in the real world.  His shirt ripped from his body and tentacles of fire and ice, air and water formed above Alex.  He tried to scream but couldn't.   His eyes were wide and his mouth gagged with the shadows own form.  
 
-It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, but Alex... He was my friend and I would save him, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
+It was a fast reaction, the fastest I'd ever moved and the first I had ever formed fire willingly.  I was afraid of the fire, always afraid, but Alex... He was my friend, and Mr. Garrett wouldn't hurt him.  I wove with quickness and clarity.  The massive ball of fire flew across the space and shattered into a thousand pieces.  The shock of my achievement knocked me out of the dream.
 
 I fell to my knees as Mr. Garrett sat still in his chair beside me.  I begged.  "No.  Please don't hurt, Alex.  I'll do anything - everything."  I asked and pleaded over and over again clutching Mr. Garrett's pant leg, but he wasn't listening to me. 
 
@@ -63,5 +63,5 @@ He thought about it, he tried to say something, but when he couldn't find the wo
 
 I blinked my eyes as the sequence continued over and over again.  The white room with the wooden floor and colorful blocks.  We played, and became friends and yet I never remembered who he was, it was a blank slate, night after frustrating night.  Alex had to hate me for it.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY4NjU0MTg5XX0=
+eyJoaXN0b3J5IjpbLTE3MzUzNjgzMzAsLTY4NjU0MTg5XX0=
 -->
