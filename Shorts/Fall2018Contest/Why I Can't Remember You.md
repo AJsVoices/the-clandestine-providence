@@ -47,6 +47,8 @@ And then a voice from nowhere echoed in the room.  "Who are you?"  I turned to l
 He thought about it, he tried to say something, but when he couldn't find the words he shrugged.  "Can I play with you?"
 
 "Sure."  I handed him a block, and we started building towers with blocks that spelled out the word 'monster.'
+
+Night after night, this is how we played
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODUwMTIyMDk0XX0=
+eyJoaXN0b3J5IjpbMTM1NTU5MTU5M119
 -->
