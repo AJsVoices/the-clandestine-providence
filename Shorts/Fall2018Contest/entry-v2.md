@@ -29,10 +29,16 @@ You looked at me confused.  I didn't blame you.  This had to be the first time y
 
 "Nox..."  Your ice blue eyes were sad.  "I don't want to leave you.  What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
 
-And as I watched I understood.  Why you aren't pissed at me for not remembering, at least not as much as I would exp
+And as I watched I understood.  Why you aren't pissed at me for not remembering, at least not as much as I would expect.  You know deep down.
+
+"I'll make you forget me.  I'll visit, but you won't remember me.  We'll never use our names again, we'll wear different faces.  We'll be someone else - always some one else.  But I can't not come here.  You are my only friend."  You pleaded with me.
+
+"I don't want to forget you."  I was on the verge of tears - then and now.
+
+"We have to.  Nox.  I can't know you are Venatori.  I
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMzMzk0NDg3NywtMTUxNzE1NTI1MSwyMD
-cyNzIyMDY3LC05NjgyMTM1XX0=
+eyJoaXN0b3J5IjpbODgzMTAyODYxLC0xNTE3MTU1MjUxLDIwNz
+I3MjIwNjcsLTk2ODIxMzVdfQ==
 -->
