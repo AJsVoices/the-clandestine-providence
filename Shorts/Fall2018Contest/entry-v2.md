@@ -47,11 +47,10 @@ I gave you a simple nod and you laid your hands on my neck and you pulled me clo
 
 There was no point in trying to escape the dream.  There never was.  Every cry for help, every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  They still came, but I never remembered you.  The nightmare came and ripped me away from you dream after dream after dream and you were safe.  That's all that mattered in the end.
 
-My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  Can I protect us both from my people - from the Venatori. 
-
+My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  Can I protect us both?
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTExNDI3MDYwOSwxMTEyNDQ3NzQ4LC0zMj
+eyJoaXN0b3J5IjpbLTU4MDI2Mjk5OSwxMTEyNDQ3NzQ4LC0zMj
 gyMTI0NTUsLTE5MDAzNDI5NTYsMTYxMjQxODMyOCwtMTUxNzE1
 NTI1MSwyMDcyNzIyMDY3LC05NjgyMTM1XX0=
 -->
