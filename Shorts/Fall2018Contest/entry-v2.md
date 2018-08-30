@@ -9,7 +9,7 @@ The darkness grew thick.  I was afraid of the dark as a child.  I still sleep wi
 
 No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
-I knew what was next and I wanted to turn away to leave this aweful memory but I stayed because you drew me here.
+I knew what was next and I wanted to turn away to leave this awful memory but I stayed because you drew me here.
 
 I was only watching, as the first blow from the tentacle landed across my back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  I hated this.  I wanted to leave and I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
 
@@ -43,10 +43,10 @@ I shrugged, "I don't know."  I said.  I didn't remember what had happened.
 
 His glare grew intense, and I shrank beneath it.  He didn't raise his hand but I felt the nudge in my head that said he would if he could.  If there weren't cameras watching.  "Git!"  He said.  And I scrambled away from him.
 
-My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  
+My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  My nightmares still take me every night.  Can I protect us both from my people - from the Venatori.  Or now that I know will they hunt you?  I don't have
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYxMjQxODMyOCwtMTUxNzE1NTI1MSwyMD
-cyNzIyMDY3LC05NjgyMTM1XX0=
+eyJoaXN0b3J5IjpbMTAxNTkwNzU5LDE2MTI0MTgzMjgsLTE1MT
+cxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEzNV19
 -->
