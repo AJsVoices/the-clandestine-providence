@@ -43,15 +43,15 @@ And as I watched I understood.  I understood why you aren't pissed at me for not
 
 "We have to,  Nox.  I can't know what you are.  You can't try to remember me.  But I can't lose you."
 
-I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  I didn't get to respond before I was ripped away from you.  The darkness surrounded me.  And my nightmare started all over again. 
+I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  I didn't get to respond before I was ripped away from you in a roar of sound and the darkness surrounded me.  And my nightmare started all over again. 
 
-There was no point in trying to escape the dream.  There never was.  Every cry for help.  Every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  But I didn't remember you.  The nightmare came ripping me away from you dream after dream after dream and you were safe.  That's all that mattered in the end.
+There was no point in trying to escape the dream.  There never was.  Every cry for help, every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  They still came, but I never remembered you.  The nightmare came and ripped me away from you dream after dream after dream and you were safe.  That's all that mattered in the end.
 
 My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  Can I protect us both from my people - from the Venatori. 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTU3NjkwNTUzLDExMTI0NDc3NDgsLTMyOD
-IxMjQ1NSwtMTkwMDM0Mjk1NiwxNjEyNDE4MzI4LC0xNTE3MTU1
-MjUxLDIwNzI3MjIwNjcsLTk2ODIxMzVdfQ==
+eyJoaXN0b3J5IjpbMTExNDI3MDYwOSwxMTEyNDQ3NzQ4LC0zMj
+gyMTI0NTUsLTE5MDAzNDI5NTYsMTYxMjQxODMyOCwtMTUxNzE1
+NTI1MSwyMDcyNzIyMDY3LC05NjgyMTM1XX0=
 -->
