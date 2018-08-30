@@ -3,11 +3,12 @@ There is  one question I ask myself each time I think about us, "Why can't I rem
  
 So I lay across my bed thinking about you again. Delving behind the locked door that stored my childhood dreams and memories, looking for the answer to the one question that plagued my mind.
 
-I watched the sequences play like a movie in my head...
-****
+I watched the sequences play like a movie in my head... The scene wa
+
+The darkness.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  T
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA0NDQyMTcxOSwyMDcyNzIyMDY3LC05Nj
-gyMTM1XX0=
+eyJoaXN0b3J5IjpbOTY0Njc3Mzc5LDIwNzI3MjIwNjcsLTk2OD
+IxMzVdfQ==
 -->
