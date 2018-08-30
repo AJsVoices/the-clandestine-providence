@@ -21,17 +21,17 @@ I stood staring at you, relief on my face in both forms, but the younger me, he 
 
 "I felt you call."  You said.
 
-"You can't be here.  If they find you, if he comes back.  If you are here he'll kill you.  They'll kill you."  I pleaded with you.
+"You can't be here.  If they find you, if he comes back.  If you are here he'll kill you.  They'll kill you."  I pleaded with you.  But you didn't understand.
 
 You looked at me confused.  I didn't blame you.  This had to be the first time you found out what I was.  "You can't be here."  I pleaded again.  
 
-"Talk to me Nox."  You put your hands on my shoulders and I winched in pain but I didn't shrink from your touch.  
+"Talk to me Nox."  You put your hands on my shoulders and I winched in pain but I didn't shrink from your touch.  I knew that touch, that love.  I knew you would never hurt me.
 
 "You're a dream walker.  We kill them.  Alex, on sight.  You can't be here.  If he comes back, he'll find you, and he'll kill you.  You can't come back here, not ever again."
 
 "Nox..."  Your ice blue eyes were sad.  "I don't want to leave you.  What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
 
-And as I watched I understood.  Why you aren't pissed at me for not remembering, at least not as much as I would expect.  You know deep down.
+And as I watched I understood.  I understood why you aren't pissed at me for not remembering you, at least not as much as I would expect.  You know deep down.
 
 "I'll make you forget me.  I'll visit, but you won't remember me.  We'll never use our names again, we'll wear different faces.  We'll be someone else - always some one else.  But I can't not come here.  You are my only friend."  You pleaded with me.
 
@@ -49,7 +49,7 @@ My heart was racing as I lay on my bed thinking about you.  Thinking about what 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDM2NjMzMTIsLTE5MDAzNDI5NTYsMT
-YxMjQxODMyOCwtMTUxNzE1NTI1MSwyMDcyNzIyMDY3LC05Njgy
-MTM1XX0=
+eyJoaXN0b3J5IjpbMTA4MDU2MjMwOSwtMTkwMDM0Mjk1NiwxNj
+EyNDE4MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIx
+MzVdfQ==
 -->
