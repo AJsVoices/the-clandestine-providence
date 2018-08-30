@@ -39,7 +39,7 @@ And as I watched I understood.  I understood why you aren't pissed at me for not
 
 "We have to,  Nox.  I can't know you are Venatori.  You can't try to remember me.  But I can't lose you."
 
-I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you Nox."  You whispered as the dream faded.  The blackness faded.  The world faded into nothingness of sleep and when I woke up I was standing against the wall with Garrett staring at me.  He glared at me, "You took long enough.  Who was that?"
+I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  The blackness faded.  The world faded into nothingness of sleep and when I woke up I was standing against the wall with Garrett staring at me.  He glared at me, "You took long enough.  Who was that?"
 
 I shrugged, "I don't know."  I said.  I didn't remember what had happened.  
 
@@ -49,7 +49,7 @@ My heart was racing as I lay on my bed thinking about you.  Thinking about what 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzM1OTM5OTgyLC0xOTAwMzQyOTU2LDE2MT
-I0MTgzMjgsLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEz
-NV19
+eyJoaXN0b3J5IjpbLTY0MjU1MjEzNCwtMTkwMDM0Mjk1NiwxNj
+EyNDE4MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIx
+MzVdfQ==
 -->
