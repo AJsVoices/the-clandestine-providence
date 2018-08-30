@@ -41,13 +41,13 @@ And as I watched I understood.  I understood why you aren't pissed at me for not
 
 I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  I didn't get to respond before I was ripped away from you.  The darkness surrounded me.  And my nightmare started all over again. 
 
-There was no point in trying to escape the dream.  There never was.  Every cry for help.  Every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  But I didn't remember you.  The nightmare came ripping me away from you dream after dream after dream and you were safe.  That's all that mattered 
+There was no point in trying to escape the dream.  There never was.  Every cry for help.  Every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  But I didn't remember you.  The nightmare came ripping me away from you dream after dream after dream and you were safe.  That's all that mattered in the end.
 
-My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  My nightmares still take me every night.  Can I protect us both from my people - from the Venatori.  Or now that I know will they hunt you?  I don't have time to be scared.  You give me strength and I know we'll get through this together.  
+My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  Can I protect us both from my people - from the Venatori. 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTc4NTk3NzQ2LC0xOTAwMzQyOTU2LDE2MT
-I0MTgzMjgsLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEz
-NV19
+eyJoaXN0b3J5IjpbLTMyODIxMjQ1NSwtMTkwMDM0Mjk1NiwxNj
+EyNDE4MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIx
+MzVdfQ==
 -->
