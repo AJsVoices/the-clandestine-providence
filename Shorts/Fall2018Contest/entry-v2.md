@@ -33,15 +33,15 @@ You looked at me confused.  I didn't blame you.  This had to be the first time y
 
 "You're a dream walker.  We kill them.  Alex, on sight.  You can't be here.  If he comes back, he'll find you, and he'll kill you.  You can't come back here, not ever again."
 
-"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you." And then you smirked.  God I loved that smirk, "What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
+"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you." And then you smirked.  God I loved that smirk, "What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  you said.  
 
 And as I watched I understood.  I understood why you aren't pissed at me for not remembering you, at least not as much as I would expect.  You know deep down why I can't.
 
-"I'll make you forget me.  I'll visit, but you won't remember me.  We'll never use our names again, we'll wear different faces.  We'll be someone else - always some one else.  But I have to come here.  You are my only friend."  You pleaded with me.
+"I'll make you forget me.  I'll visit, but you won't remember me.  We'll never use our names again, we'll wear different faces.  We'll be someone else - always some one else.  But I have to come here.  You are my only friend."  You pleaded with me and it nearly broke my heart.
 
 "I don't want to forget you."  I was on the verge of tears - then and now.
 
-"We have to,  Nox.  I can't know you are Venatori.  You can't try to remember me.  But I can't lose you."
+"We have to,  Nox.  I can't know what you are.  You can't try to remember me.  But I can't lose you."
 
 I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  I didn't get to respond before I was ripped away from you.  The darkness surrounded me.  And my nightmare started all over again. 
 
@@ -51,7 +51,7 @@ My heart was racing as I lay on my bed thinking about us.  Thinking about what w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4Mjg2NDQ0NzksMTExMjQ0Nzc0OCwtMz
-I4MjEyNDU1LC0xOTAwMzQyOTU2LDE2MTI0MTgzMjgsLTE1MTcx
-NTUyNTEsMjA3MjcyMjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbNTU3NjkwNTUzLDExMTI0NDc3NDgsLTMyOD
+IxMjQ1NSwtMTkwMDM0Mjk1NiwxNjEyNDE4MzI4LC0xNTE3MTU1
+MjUxLDIwNzI3MjIwNjcsLTk2ODIxMzVdfQ==
 -->
