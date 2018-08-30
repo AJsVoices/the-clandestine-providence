@@ -3,12 +3,14 @@ There is  one question I ask myself each time I think about us, "Why can't I rem
  
 So I lay across my bed thinking about you again. Delving behind the locked door that stored my childhood dreams and memories, looking for the answer to the one question that plagued my mind.
 
-I watched the sequences play like a movie in my head... The scene wa
+I watched the sequences play like a movie in my head... The scene was so familiar I wanted to jump to the next memory but you drew me here, so here I'll stay - for you.
 
-The darkness.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  T
+The darkness.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
+
+No matter how many times I told myself 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTY0Njc3Mzc5LDIwNzI3MjIwNjcsLTk2OD
-IxMzVdfQ==
+eyJoaXN0b3J5IjpbLTE4MTA1NTEwNCwyMDcyNzIyMDY3LC05Nj
+gyMTM1XX0=
 -->
