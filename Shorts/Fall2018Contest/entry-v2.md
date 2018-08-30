@@ -39,17 +39,15 @@ And as I watched I understood.  I understood why you aren't pissed at me for not
 
 "We have to,  Nox.  I can't know you are Venatori.  You can't try to remember me.  But I can't lose you."
 
-I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  The blackness faded.  The world faded into nothingness of sleep and when I woke up I was standing against the wall with Garrett staring at me.  He glared at me, "You took long enough.  Who was that?"
+I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox."  You whispered as the dream faded.  I didn't get to respond before I was ripped away from you.  The darkness surrounded me.  And my nightmare started all over again. 
 
-I shrugged, "I don't know."  I said.  I didn't remember what had happened.  
-
-His glare grew intense, and I shrank beneath it.  He didn't raise his hand but I felt the nudge in my head that said he would if he could.  If there weren't cameras watching.  "Git!"  He said.  And I scrambled away from him.
+There was no point in tr
 
 My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  My nightmares still take me every night.  Can I protect us both from my people - from the Venatori.  Or now that I know will they hunt you?  I don't have time to be scared.  You give me strength and I know we'll get through this together.  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY0MjU1MjEzNCwtMTkwMDM0Mjk1NiwxNj
-EyNDE4MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIx
-MzVdfQ==
+eyJoaXN0b3J5IjpbNTY1NTczNjM4LC0xOTAwMzQyOTU2LDE2MT
+I0MTgzMjgsLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEz
+NV19
 -->
