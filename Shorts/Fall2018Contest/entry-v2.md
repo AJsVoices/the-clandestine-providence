@@ -11,9 +11,13 @@ No matter how many times I told myself I wasn't a monster, the words my mother s
 
 I knew what was next and I wanted to turn away to leave this aweful memory but I stayed because you drew me here.
 
-I was only watching, as the first blow from the tentacle landed across my back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  I hated this.  I wanted to leave and I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the da
+I was only watching, as the first blow from the tentacle landed across my back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  I hated this.  I wanted to leave and I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
+
+A familiar voice echoed through and I didn't need to see his face to know it was you.  "Hey..." You started to say and then your face grew dark and you flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
+
+I stood staring at your, rele
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5ODc2NjI0ODAsLTE1MTcxNTUyNTEsMj
-A3MjcyMjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbNDYxMDc3MjIyLC0xNTE3MTU1MjUxLDIwNz
+I3MjIwNjcsLTk2ODIxMzVdfQ==
 -->
