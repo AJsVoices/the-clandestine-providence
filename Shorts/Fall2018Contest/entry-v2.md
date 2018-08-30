@@ -7,10 +7,13 @@ I watched the sequences play like a movie in my head... The scene was so familia
 
 The darkness.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
 
-No matter how many times I told myself 
+No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
+
+I knew what was next and I wanted to turn away to leave this aweful memory but I stayed because you drew me here.
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MTA1NTEwNCwyMDcyNzIyMDY3LC05Nj
-gyMTM1XX0=
+eyJoaXN0b3J5IjpbLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOT
+Y4MjEzNV19
 -->
