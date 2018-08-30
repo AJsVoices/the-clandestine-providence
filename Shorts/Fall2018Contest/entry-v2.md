@@ -15,9 +15,14 @@ I was only watching, as the first blow from the tentacle landed across my back. 
 
 A familiar voice echoed through and I didn't need to see his face to know it was you.  "Hey..." You started to say and then your face grew dark and you flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
 
-I stood staring at your, rele
+I stood staring at your, relief on my face in both forms, but the younger me, he yelled.  "What are you doing here?"
+
+"I felt you call."  You said.
+
+"You can't be here.  If they find you, if he comes back.  If you are here he'll kill you.  They'll kill you."  I pleaded with you.
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDYxMDc3MjIyLC0xNTE3MTU1MjUxLDIwNz
-I3MjIwNjcsLTk2ODIxMzVdfQ==
+eyJoaXN0b3J5IjpbNjg1MDE3ODUsLTE1MTcxNTUyNTEsMjA3Mj
+cyMjA2NywtOTY4MjEzNV19
 -->
