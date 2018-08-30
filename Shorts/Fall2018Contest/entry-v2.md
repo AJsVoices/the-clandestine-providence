@@ -23,10 +23,14 @@ I stood staring at your, relief on my face in both forms, but the younger me, he
 
 You looked at me confused.  I didn't blame you.  This had to be the first time you found out what I was.  "You can't be here."  I pleaded again.  
 
-"Talk to me Nox."
+"Talk to me Nox."  You put your hands on my shoulders and I winched in pain but I didn't shrink from your touch.  
+
+"You're a dream walker.  We kill them.  Alex, on sight.  You can't be here.  If he comes back, he'll find you, and he'll kill you.  You can't come back here, not ever again."
+
+"Nox
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMzAwODQ0NTAsLTE1MTcxNTUyNTEsMj
+eyJoaXN0b3J5IjpbLTEwNTM4ODU3ODIsLTE1MTcxNTUyNTEsMj
 A3MjcyMjA2NywtOTY4MjEzNV19
 -->
