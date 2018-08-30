@@ -15,9 +15,9 @@ I was only watching as the first blow from the tentacle landed across my dream s
 
 I hated this.  I wanted to leave but I was frozen in place.  I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
 
-A familiar voice echoed through and I didn't need to see his face to know it was you.  "Hey..." You started to say and then your face grew dark and you flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
+A familiar voice echoed through and I didn't need to see his face to know it was you.  "Hey..." You started to say and then your face grew dark when you saw what was happening.  You flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
 
-I stood staring at your, relief on my face in both forms, but the younger me, he yelled.  "What are you doing here?"
+I stood staring at you, relief on my face in both forms, but the younger me, he yelled.  "What are you doing here?"
 
 "I felt you call."  You said.
 
@@ -49,7 +49,7 @@ My heart was racing as I lay on my bed thinking about you.  Thinking about what 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMzEzMTIyOTAsLTE5MDAzNDI5NTYsMT
+eyJoaXN0b3J5IjpbLTE1NDM2NjMzMTIsLTE5MDAzNDI5NTYsMT
 YxMjQxODMyOCwtMTUxNzE1NTI1MSwyMDcyNzIyMDY3LC05Njgy
 MTM1XX0=
 -->
