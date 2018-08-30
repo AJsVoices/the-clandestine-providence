@@ -21,8 +21,12 @@ I stood staring at your, relief on my face in both forms, but the younger me, he
 
 "You can't be here.  If they find you, if he comes back.  If you are here he'll kill you.  They'll kill you."  I pleaded with you.
 
+You looked at me confused.  I didn't blame you.  This had to be the first time you found out what I was.  "You can't be here."  I pleaded again.  
+
+"Talk to me Nox."
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjg1MDE3ODUsLTE1MTcxNTUyNTEsMjA3Mj
-cyMjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbLTEzMzAwODQ0NTAsLTE1MTcxNTUyNTEsMj
+A3MjcyMjA2NywtOTY4MjEzNV19
 -->
