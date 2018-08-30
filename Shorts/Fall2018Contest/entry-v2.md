@@ -9,7 +9,7 @@ The scene was so familiar I wanted to jump to the next memory but you drew me he
 
 The darkness grew thicker as I watched from my vantage point.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
 
-No matter how many times I told myself I wasn't a monster my mother's words still echoed in my head.  She was afraid of me.  Of the thing I might become, but I was five at the time.  I didn't know what I was.  I just needed to learn to control it.  And control it I did, but I didn't blame her, when your entire family is ripped apart by the supernatural you tend to be wary of any being who displays that kinda power.  And when it's your own child casting fire about like it was nothing.  Setting your house on fire.  I didn't blame her,  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
+No matter how many times I told myself I wasn't a monster my mother's words still echoed in my head.  She was afraid of me.  Of the thing I might become, but I was five at the time.  I didn't know what I was.  I just needed to learn to control it.  And control it I did, but I didn't blame her, when your entire family is ripped apart by the supernatural you tend to be wary of any being who displays that kinda power.  And when it's your own child casting fire about like it was nothing.  Setting your house on fire. Who could blame her for thinking  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
 I knew what was next and I wanted to turn away to leave this awful dream - the one I have every night for as long as I could remember. But I stayed because you drew me here.
 
@@ -49,7 +49,7 @@ My heart was racing as I lay on my bed thinking about us.  Thinking about what w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEyMzIyOTk0MywtMzI4MjEyNDU1LC0xOT
+eyJoaXN0b3J5IjpbMTI2MDM3OTU2MCwtMzI4MjEyNDU1LC0xOT
 AwMzQyOTU2LDE2MTI0MTgzMjgsLTE1MTcxNTUyNTEsMjA3Mjcy
 MjA2NywtOTY4MjEzNV19
 -->
