@@ -15,7 +15,7 @@ I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
 I knew what was next and I wanted to turn away to leave this awful dream - the one I have every night for as long as I could remember. But I stayed because you drew me here.
 
-I was only watching as the first blow from the tentacle landed across my dream self's back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  Even now when it wasn't me receiving the beating I felt it split the skin along my back.
+I was only watching as the first blow from the tentacle landed across my dream self's back.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  Even now when it wasn't me receiving the beating I felt it split the skin along my back.
 
 I hated this.  I wanted to leave but I was frozen in place.  I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
 
@@ -51,7 +51,7 @@ My heart was racing as I lay on my bed thinking about us.  Thinking about what w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTExMjQ0Nzc0OCwtMzI4MjEyNDU1LC0xOT
-AwMzQyOTU2LDE2MTI0MTgzMjgsLTE1MTcxNTUyNTEsMjA3Mjcy
-MjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbNDAwNTYxNTYzLDExMTI0NDc3NDgsLTMyOD
+IxMjQ1NSwtMTkwMDM0Mjk1NiwxNjEyNDE4MzI4LC0xNTE3MTU1
+MjUxLDIwNzI3MjIwNjcsLTk2ODIxMzVdfQ==
 -->
