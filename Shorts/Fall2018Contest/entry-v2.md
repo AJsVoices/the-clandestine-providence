@@ -9,7 +9,7 @@ The scene was so familiar I wanted to jump to the next memory but you drew me he
 
 The darkness grew thicker as I watched from my vantage point.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
 
-No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
+No matter how many times I told myself I wasn't a monster my mother's words still echod in my head.  She was afraid of me.  Of the thing I might become.  I didn't blame her, when your entire family is ripped apart by the supernatural you tend to be wary of any being who displays that power.   I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
 I knew what was next and I wanted to turn away to leave this awful dream - the one I have every night for as long as I could remember. But I stayed because you drew me here.
 
@@ -49,7 +49,7 @@ My heart was racing as I lay on my bed thinking about us.  Thinking about what w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA0NzQ5Mzc0OSwtMzI4MjEyNDU1LC0xOT
+eyJoaXN0b3J5IjpbLTEzMTI3OTA0OSwtMzI4MjEyNDU1LC0xOT
 AwMzQyOTU2LDE2MTI0MTgzMjgsLTE1MTcxNTUyNTEsMjA3Mjcy
 MjA2NywtOTY4MjEzNV19
 -->
