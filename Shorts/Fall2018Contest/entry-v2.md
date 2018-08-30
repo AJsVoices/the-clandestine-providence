@@ -5,15 +5,14 @@ So I lay across my bed thinking about you again. Delving behind the locked door 
 
 I watched the sequences play like a movie in my head... The scene was so familiar I wanted to jump to the next memory but you drew me here, so here I'll stay - for you.
 
-The darkness.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
+The darkness grew thick.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
 
 No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
 I knew what was next and I wanted to turn away to leave this aweful memory but I stayed because you drew me here.
 
-
-
+I
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOT
-Y4MjEzNV19
+eyJoaXN0b3J5IjpbMjEyODE0NjQwNCwtMTUxNzE1NTI1MSwyMD
+cyNzIyMDY3LC05NjgyMTM1XX0=
 -->
