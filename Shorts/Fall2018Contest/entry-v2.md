@@ -33,7 +33,7 @@ You looked at me confused.  I didn't blame you.  This had to be the first time y
 
 "You're a dream walker.  We kill them.  Alex, on sight.  You can't be here.  If he comes back, he'll find you, and he'll kill you.  You can't come back here, not ever again."
 
-"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you.  What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
+"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you." And then you smirked.  God I loved that smirk, "What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
 
 And as I watched I understood.  I understood why you aren't pissed at me for not remembering you, at least not as much as I would expect.  You know deep down why I can't.
 
@@ -51,7 +51,7 @@ My heart was racing as I lay on my bed thinking about us.  Thinking about what w
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDAwNTYxNTYzLDExMTI0NDc3NDgsLTMyOD
-IxMjQ1NSwtMTkwMDM0Mjk1NiwxNjEyNDE4MzI4LC0xNTE3MTU1
-MjUxLDIwNzI3MjIwNjcsLTk2ODIxMzVdfQ==
+eyJoaXN0b3J5IjpbLTE4Mjg2NDQ0NzksMTExMjQ0Nzc0OCwtMz
+I4MjEyNDU1LC0xOTAwMzQyOTU2LDE2MTI0MTgzMjgsLTE1MTcx
+NTUyNTEsMjA3MjcyMjA2NywtOTY4MjEzNV19
 -->
