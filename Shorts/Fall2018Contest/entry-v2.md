@@ -35,10 +35,12 @@ And as I watched I understood.  Why you aren't pissed at me for not remembering,
 
 "I don't want to forget you."  I was on the verge of tears - then and now.
 
-"We have to.  Nox.  I can't know you are Venatori.  I
+"We have to.  Nox.  I can't know you are Venatori.  You can't try to remember me.  But I can't lose you."
+
+I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you Nox."  You whispered as the dream faded.  The blackness faded.  The
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODgzMTAyODYxLC0xNTE3MTU1MjUxLDIwNz
+eyJoaXN0b3J5IjpbOTIyNzAyNzU2LC0xNTE3MTU1MjUxLDIwNz
 I3MjIwNjcsLTk2ODIxMzVdfQ==
 -->
