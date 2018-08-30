@@ -43,10 +43,10 @@ I shrugged, "I don't know."  I said.  I didn't remember what had happened.
 
 His glare grew intense, and I shrank beneath it.  He didn't raise his hand but I felt the nudge in my head that said he would if he could.  If there weren't cameras watching.  "Git!"  He said.  And I scrambled away from him.
 
-My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  My nightmares still take me every night.  Can I protect us both from my people - from the Venatori.  Or now that I know will they hunt you?  I don't have
+My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  What happens now.  I know you are real.  I know your name.  My nightmares still take me every night.  Can I protect us both from my people - from the Venatori.  Or now that I know will they hunt you?  I don't have time to be scared.  You give me strength and I know we'll get through this together.  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAxNTkwNzU5LDE2MTI0MTgzMjgsLTE1MT
-cxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbLTE5MDAzNDI5NTYsMTYxMjQxODMyOCwtMT
+UxNzE1NTI1MSwyMDcyNzIyMDY3LC05NjgyMTM1XX0=
 -->
