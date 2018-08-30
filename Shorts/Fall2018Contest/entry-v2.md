@@ -9,9 +9,9 @@ The darkness grew thicker as I watched from my vantage point.  I was afraid of t
 
 No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
-I knew what was next and I wanted to turn away to leave this awful memory but I stayed because you drew me here.
+I knew what was next and I wanted to turn away to leave this awful dream - the one I have every night for as long as I could remember. But I stayed because you drew me here.
 
-I was only watching, as the first blow from the tentacle landed across my back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  I hated this.  I wanted to leave and I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
+I was only watching as the first blow from the tentacle landed across my dream self's back.  "Spark."  My demon yelled.  I bit back the yelp that I felt across my scarred back.  It wasn't real but I felt it none the less.  I hated this.  I wanted to leave and I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes I saw a figure in the darkness.  
 
 A familiar voice echoed through and I didn't need to see his face to know it was you.  "Hey..." You started to say and then your face grew dark and you flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
 
@@ -47,7 +47,7 @@ My heart was racing as I lay on my bed thinking about you.  Thinking about what 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNzY3MDIzNzAsLTE5MDAzNDI5NTYsMT
-YxMjQxODMyOCwtMTUxNzE1NTI1MSwyMDcyNzIyMDY3LC05Njgy
-MTM1XX0=
+eyJoaXN0b3J5IjpbLTc2NDQwNTU1MSwtMTkwMDM0Mjk1NiwxNj
+EyNDE4MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIx
+MzVdfQ==
 -->
