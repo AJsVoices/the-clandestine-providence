@@ -27,10 +27,12 @@ You looked at me confused.  I didn't blame you.  This had to be the first time y
 
 "You're a dream walker.  We kill them.  Alex, on sight.  You can't be here.  If he comes back, he'll find you, and he'll kill you.  You can't come back here, not ever again."
 
-"Nox
+"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you.  What if they don't remember me?  Or you?  I can make them forget.  I can find him, make it even more a dream.  I've done it before."  You said.  
+
+And as I watched I understood.  Why you aren't pissed at me for not remembering, at least not as much as I would exp
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNTM4ODU3ODIsLTE1MTcxNTUyNTEsMj
-A3MjcyMjA2NywtOTY4MjEzNV19
+eyJoaXN0b3J5IjpbMTMzMzk0NDg3NywtMTUxNzE1NTI1MSwyMD
+cyNzIyMDY3LC05NjgyMTM1XX0=
 -->
