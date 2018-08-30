@@ -41,10 +41,12 @@ I gave you a simple nod and you laid your hands on my neck and you pulled me clo
 
 I shrugged, "I don't know."  I said.  I didn't remember what had happened.  
 
-His glare grew intense, and I shrank beneath it.  He didn't raise his han
+His glare grew intense, and I shrank beneath it.  He didn't raise his hand but I felt the nudge in my head that said he would if he could.  If there weren't cameras watching.  "Git!"  He said.  And I scrambled away from him.
+
+My heart was racing as I lay on my bed thinking about you.  Thinking about what we did and why.  
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgyNzQ1Mjg0OCwtMTUxNzE1NTI1MSwyMD
+eyJoaXN0b3J5IjpbMTYxMjQxODMyOCwtMTUxNzE1NTI1MSwyMD
 cyNzIyMDY3LC05NjgyMTM1XX0=
 -->
