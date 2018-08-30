@@ -5,7 +5,7 @@ So I lay across my bed thinking about you again. Delving behind the locked door 
 
 I watch the sequences play like a movie in my head... The scene was so familiar I wanted to jump to the next memory but you drew me here, so here I'll stay - for you.
 
-The darkness grew thick as .  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
+The darkness grew thicker as I watched from my vantage point.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster'.  
 
 No matter how many times I told myself I wasn't a monster, the words my mother said the day I sparked still echoed in my head.  I was a monster.  I thought I was past this, but obviously not.  My dreams echoed my self worth.
 
@@ -47,7 +47,7 @@ My heart was racing as I lay on my bed thinking about you.  Thinking about what 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjI5ODQxNDkwLC0xOTAwMzQyOTU2LDE2MT
-I0MTgzMjgsLTE1MTcxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEz
-NV19
+eyJoaXN0b3J5IjpbLTIwNzY3MDIzNzAsLTE5MDAzNDI5NTYsMT
+YxMjQxODMyOCwtMTUxNzE1NTI1MSwyMDcyNzIyMDY3LC05Njgy
+MTM1XX0=
 -->
