@@ -1,23 +1,23 @@
 # Why I Can't Remember You
-There is  one question I ask myself each time I think about us, "Why can't I remember you?" When I first met you out here in the real world, I thought you were a dream come true, only to find out later that was the absolute truth.  You are my love, my light and you say we've been dreaming about each other for years since we were little.
- 
+ There is  one question I ask myself each time I think about us, "Why can't I remember you?" When I first met you out here in the real world, I thought you were a dream come true. Funny thing, it was the absolute truth.  You are my love, my light and you say we've been dreaming about each other for years since we were little.
+
 So I lay across my bed thinking about you again. Delving behind the locked door that stored my childhood dreams and memories, looking for the answer to the one question that plagues my mind.
 
 I watch the sequences play like a movie in my head... 
 
 The scene was so familiar I wanted to jump to the next memory, but you drew me here, so here I'll stay - for you.
 
-The darkness grew thicker as I watched from my vantage point.  I was afraid of the dark as a child.  I still sleep with a small light on in the bathroom even now.  Did you know that?  The fog rolled in with my demon - my own personal monster.  It whispered what I was thinking, 'monster.'  
+The darkness grew thicker as I watched from my vantage point.  I was afraid of the dark as a child.  I sleep with a small light on in the bathroom.  Did you know that?  The fog rolled in with my demon - my personal monster.  It whispered what I was thinking, 'monster.'  
 
-No matter how many times I told myself I wasn't a monster my mother's words still echoed in my head.  She was afraid of me, a five-year-old, of the thing I might become. I didn't know what I was.  I just needed to learn to control it.  And control it I did, but I didn't blame her. When your entire family is ripped apart by the supernatural, you tend to be wary of any being who displays that kind of power.  And when it's your own child casting fire about like it was nothing, setting your house on fire, who could blame her for thinking  I was a monster?  
+No matter how many times I told myself I wasn't a monster my mother's words still echoed in my head.  She was afraid of me, a five-year-old, of the thing I might become. I didn't know what I was.  I needed to learn to control it.  And control it I did, but I didn't blame her. When your entire family is ripped apart by the supernatural, you tend to be wary of any being who displays that kind of power.  And when it's your own child casting fire about like it was nothing, setting your house on fire, who could blame her for thinking  I was a monster?  
 
 I told myself  I was past this, but I obviously wasn't.  My dreams echoed my self-worth.
 
-I knew what was next and I wanted to turn away to leave this awful dream - the one I’ve had every night for as long as I could remember. But I stayed because you drew me here.
+I knew what was next, and I wanted to turn away to leave this awful dream - the one I’ve had every night for as long as I could remember. But I stayed because you drew me here.
 
-The first blow from the tentacle landed across my dream self's back, and I bit back the yelp that threatened to escape as if the memory were happening to me now. It wasn't real, but I felt it anyway.  Even now when it wasn't me receiving the beating, I felt it split the skin along my back. It was strange that when it was happening keeping quiet was easy, but now - watching I shied away, wanted to run, but I never did.  Never made a sound, never fought back...
+The first blow from the tentacle landed across my dream self's back, and I bit back the yelp that threatened to escape as if the memory were happening now. It wasn't real, but I felt it anyway.  Even now when it wasn't me receiving the beating, I felt it split the skin along my back. It was strange that when it was happening keeping quiet was easy, but now - watching I shied away, wanted to run, but I never did.  Never made a sound, never fought back...
 
-I hated this.  I wanted to leave, but I was frozen in place.  I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes, I saw a figure in the darkness.  A familiar voice echoed through, and I didn't need to see his face to know it was you.  
+I hated this, and I wanted to leave, but it froze me in place.  I couldn't take it as I watched another blow land. And then another.  But before I could close my eyes, I saw a figure in the darkness.  A familiar voice echoed through the darkness. I knew it was you without seeing his face.
 
 "Hey…," you started to say and then your face grew dark when you saw what was happening.  You flung the shadow from my dream.  The demon was gone, the world brightened.  The shadows lifted.  There was only you and me.  
 
@@ -52,10 +52,9 @@ There was no point in trying to escape the dream.  There never was.  Every cry f
 But you were safe, that's all that mattered in the end.
 
 My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now?  I know you are real.  I know your name.  Can I protect us both?
-
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1ODc2ODEyMSwxMjUwODI2MDg0LC0yNT
-YxNzU1NzgsLTU4MDI2Mjk5OSwxMTEyNDQ3NzQ4LC0zMjgyMTI0
-NTUsLTE5MDAzNDI5NTYsMTYxMjQxODMyOCwtMTUxNzE1NTI1MS
-wyMDcyNzIyMDY3LC05NjgyMTM1XX0=
+eyJoaXN0b3J5IjpbMTU2MzM3ODY3LC0xNTg3NjgxMjEsMTI1MD
+gyNjA4NCwtMjU2MTc1NTc4LC01ODAyNjI5OTksMTExMjQ0Nzc0
+OCwtMzI4MjEyNDU1LC0xOTAwMzQyOTU2LDE2MTI0MTgzMjgsLT
+E1MTcxNTUyNTEsMjA3MjcyMjA2NywtOTY4MjEzNV19
 -->
