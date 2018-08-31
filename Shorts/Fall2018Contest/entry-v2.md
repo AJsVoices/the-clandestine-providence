@@ -25,7 +25,7 @@ I stood staring at you, relief on my face in both forms; but the younger me, he 
 
 "I felt you call,"  you said.
 
-"You can't be here.  If they find you, if he comes back.  If you are here he'll kill you.  They'll kill you."  I pleaded with you.  But you didn't understand.
+"You can't be here. When it comes back it won't ever let you go.  You have to go, Alex."  I pleaded with you.  But you didn't understand.
 
 You looked at me confused.  I didn't blame you.  This had to be the first time you found out what I was.  
 
@@ -33,9 +33,9 @@ You looked at me confused.  I didn't blame you.  This had to be the first time y
 
 "Talk to me, Nox."  You put your hands on my shoulders and I winced in pain but I didn't shrink from your touch.  I knew that touch, that love.  I knew you would never hurt me.
 
-"You're a dream walker. We kill them, Alex, on sight. You can't be here. If he comes back, he'll find you and he'll kill you. You can't come back here, not ever again."
+"You're a dream walker. It likes power, you can't let it get you. You can't come back here, not ever again.  I won't let it hurt you.  Please Alex."
 
-"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you." And then you smirked.  God I loved that smirk, "What if they don't remember me? Or you? I can make them forget. I can find him, make it even more a dream. I've done it before," you said.  
+"Nox..."  Your ice blue eyes were sad.  "I don't want to leave you." And then you smirked.  God I loved that smirk, "What if  it doesn't remember me? Or you? I can make it forget, make us forget. I've done it before," you said.  
 
 And as I watched I understood.  I understood why you aren't pissed at me for not remembering you, at least not as much as I would expect.  You know deep down why I can't.
 
@@ -45,7 +45,7 @@ And as I watched I understood.  I understood why you aren't pissed at me for not
 
 "We have to,  Nox.  I can't know what you are.  You can't try to remember me.  But I can't lose you."
 
-I gave you a simple nod and you laid your hands on my neck and you pulled me close and you kissed me.  "I love you, Nox,"  you whispered as the dream faded.  I didn't get to respond before I was ripped away from you in a roar of sound and the darkness surrounded me.  And then my nightmare started all over again. 
+I gave you a simple nod and you laid your hands around my neck and you pulled me close and you kissed me.  "I love you, Nox,"  you whispered as the dream faded.  I didn't get to respond before I was ripped away from you in a roar of sound and the darkness surrounded me.  And then my nightmare started all over again. 
 
 There was no point in trying to escape the dream.  There never was.  Every cry for help, every tear I shed only made it worse.  Over and over again the nightmares came.  I remembered them, every blow, every tear.  They still came, but I never remembered you.  The nightmare came and ripped me away from you dream, after dream, after dream.
 
@@ -54,8 +54,8 @@ But you were safe, that's all that mattered in the end.
 My heart was racing as I lay on my bed thinking about us.  Thinking about what we did and why.  What happens now?  I know you are real.  I know your name.  Can I protect us both?
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI1NjE3NTU3OCwtNTgwMjYyOTk5LDExMT
-I0NDc3NDgsLTMyODIxMjQ1NSwtMTkwMDM0Mjk1NiwxNjEyNDE4
-MzI4LC0xNTE3MTU1MjUxLDIwNzI3MjIwNjcsLTk2ODIxMzVdfQ
-==
+eyJoaXN0b3J5IjpbMTI1MDgyNjA4NCwtMjU2MTc1NTc4LC01OD
+AyNjI5OTksMTExMjQ0Nzc0OCwtMzI4MjEyNDU1LC0xOTAwMzQy
+OTU2LDE2MTI0MTgzMjgsLTE1MTcxNTUyNTEsMjA3MjcyMjA2Ny
+wtOTY4MjEzNV19
 -->
