@@ -15,8 +15,10 @@ I pushed open the door to my room just before it closed and Benji was staring at
 
 Benji laughed, "What you finally regretting leaving New York and your brown eyed beau?"
 
+"What?  No!"  I shook my head and snatched my phone from him.  "He's better off without me."  I said.  I opened up his best friends instagram.  I hadn't been stalking her at all.  In the first three photos were pictures of her daughter happily playing with the blonde douche back from Aspect, but in the forth was Nox sitting on his balcony 
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNDI5NDQxMTIsLTE2MTkwNDg2MjgsLT
-kyODA2NTI1MV19
+eyJoaXN0b3J5IjpbMjEwNDY1OTI2NywtMTYxOTA0ODYyOCwtOT
+I4MDY1MjUxXX0=
 -->
