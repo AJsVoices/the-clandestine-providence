@@ -31,12 +31,20 @@ Benji laughed, "The same kind we have?  Alex, he's fucking Venatori, his life is
 
 "I don't go after guys I like Benj.  It's all a game."
 
+Benji shook his head, "Why is everything a game, Alex?  You loved him growing up didn't you?"
 
+"I should never have told you that."
+
+"But you did.  And he loved you too.  I think he still does."
+
+"It doesn't matter.  It's over."
+
+Benji took my keys from my pants pocket and he stole my wallet and only left me with James' things.  "You burn any of this and I'm going to have it all recreated.  Until you talk to him, I'm keeping e
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTA4MjY5MywtNjYwMjgxMTQyLC0xNjE5MD
-Q4NjI4LC05MjgwNjUyNTFdfQ==
+eyJoaXN0b3J5IjpbMzQ5MjA3ODk5LC02NjAyODExNDIsLTE2MT
+kwNDg2MjgsLTkyODA2NTI1MV19
 -->
