@@ -19,10 +19,14 @@ Benji laughed, "What you finally regretting leaving New York and your brown eyed
 
 "You haven't read his texts yet have you?"
 
-I shook my head.  "I'm just going to delete 
+I shook my head.  "I'm just going to delete them.  It's over, Benji."  I growled at him.  "Why can't anyone get that through their fucking heads."
+
+Benji sighed and grabbed my phone from me and when I grabbed for it he held out his hand blocked me from my own phone as he opened my messages with one hand.
+
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExODQ5Njc1ODgsLTY2MDI4MTE0MiwtMT
-YxOTA0ODYyOCwtOTI4MDY1MjUxXX0=
+eyJoaXN0b3J5IjpbNTIyNTQ5MzksLTY2MDI4MTE0MiwtMTYxOT
+A0ODYyOCwtOTI4MDY1MjUxXX0=
 -->
