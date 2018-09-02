@@ -21,12 +21,14 @@ Benji laughed, "What you finally regretting leaving New York and your brown eyed
 
 I shook my head.  "I'm just going to delete them.  It's over, Benji."  I growled at him.  "Why can't anyone get that through their fucking heads."
 
-Benji sighed and grabbed my phone from me and when I grabbed for it he held out his hand blocked me from my own phone as he opened my messages with one hand.
+Benji sighed and grabbed my phone from me and when I grabbed for it he held out his hand blocked me from my own phone as he opened my messages with one hand.  At 9:30 tonight Nox wrote, "Alex, I'm worried something's happened to you please call or text. Any hour."
+
+"You keep saying it's over, Alex, but he didn't seem to think so."  Benji scrolled up and read the next one, "
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTIyNTQ5MzksLTY2MDI4MTE0MiwtMTYxOT
-A0ODYyOCwtOTI4MDY1MjUxXX0=
+eyJoaXN0b3J5IjpbMTk1ODExMjI4NiwtNjYwMjgxMTQyLC0xNj
+E5MDQ4NjI4LC05MjgwNjUyNTFdfQ==
 -->
