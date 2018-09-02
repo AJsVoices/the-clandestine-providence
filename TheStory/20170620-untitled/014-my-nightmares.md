@@ -23,12 +23,15 @@ I shook my head.  "I'm just going to delete them.  It's over, Benji."  I growled
 
 Benji sighed and grabbed my phone from me and when I grabbed for it he held out his hand blocked me from my own phone as he opened my messages with one hand.  At 9:30 tonight Nox wrote, "Alex, I'm worried something's happened to you please call or text. Any hour."
 
-"You keep saying it's over, Alex, but he didn't seem to think so."  Benji scrolled up and read the next one, "
+"You keep saying it's over, Alex, but he didn't seem to think so."  Benji scrolled up and read the one before that, "I want to remember all of them. Please help me.  Before that,  I'm so sorry I don't remember all those times. I wish I did. I hate thinking about what you had to think of me back then.  And before that  Margo is helping me remember my dreams. I remember our first kiss, and our
+first time - both my firsts if you can count a dream encounter. 
+
+N: 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk1ODExMjI4NiwtNjYwMjgxMTQyLC0xNj
+eyJoaXN0b3J5IjpbMTI0NDUzOTkwMywtNjYwMjgxMTQyLC0xNj
 E5MDQ4NjI4LC05MjgwNjUyNTFdfQ==
 -->
