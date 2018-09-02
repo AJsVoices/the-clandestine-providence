@@ -27,12 +27,16 @@ Benji sighed and grabbed my phone from me and when I grabbed for it he held out 
 
 "It's over Benj."  I flopped down on my bed.  "He knows I'm a con man.  His fucking friends know.  What kind of relationship is that going to be?"
 
-Benji laughed, "The same kind 
+Benji laughed, "The same kind we have?  Alex, he's fucking Venatori, his life isn't exactly legal or normal either.  And Alex, if I'm going to admit this you you, but he's fucking hot.  Most of the guys you go after they don't look like him."
+
+"I don't go after guys I like Benj.  It's all a game."
+
+
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzc5NjM2MDk1LC02NjAyODExNDIsLTE2MT
-kwNDg2MjgsLTkyODA2NTI1MV19
+eyJoaXN0b3J5IjpbNTA4MjY5MywtNjYwMjgxMTQyLC0xNjE5MD
+Q4NjI4LC05MjgwNjUyNTFdfQ==
 -->
