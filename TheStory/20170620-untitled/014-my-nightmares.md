@@ -7,10 +7,16 @@ What the fuck was The Wicked Truth doing as Nox's friend?  He'd said it cost ext
 
 I didn't run but I didn't walk either.  At least it felt like I was in panic mode.  I had a bag in Serenity ready to go.  I had work out new IDs without the Wicked Truth.  I had to get the fuck out of Dodge.  Too many people knew the truth.  Knew who Alex Kennedy was.  I should burn my reality down this time.  No one had ever put the real together with the fake.  But then I had never used Alex Kennedy with a con before.  Fuck!
 
-By the  time I'd reached my room I was ready to burn down my life.  But I got to my door and Benji was stepping inside with his key card looking both directions before slipping
+By the  time I'd reached my room I was ready to burn down my life.  But I got to my door and Benji was stepping inside with his key card looking both directions before slipping in.  I couldn't leave him to deal with these vampires alone.  But I couldn't stay here either.  Anthony Giovanni would eventually see Nox and he'd fucking tell him everything.
+
+I pushed open the door to my room just before it closed and Benji was staring at me, "You are a fucking mess I heard you coming."
+
+"You'd be a mess too if you fucked up like I did."
+
+Benji laughed, "What you finally regretting leaving New York and your brown eyed beau?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgwNjkyNjU2LC0xNjE5MDQ4NjI4LC05Mj
-gwNjUyNTFdfQ==
+eyJoaXN0b3J5IjpbLTEwNDI5NDQxMTIsLTE2MTkwNDg2MjgsLT
+kyODA2NTI1MV19
 -->
