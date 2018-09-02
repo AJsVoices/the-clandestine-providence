@@ -39,12 +39,16 @@ Benji shook his head, "Why is everything a game, Alex?  You loved him growing up
 
 "It doesn't matter.  It's over."
 
-Benji took my keys from my pants pocket and he stole my wallet and only left me with James' things.  "You burn any of this and I'm going to have it all recreated.  Until you talk to him, I'm keeping e
+Benji took my keys from my pants pocket and he stole my wallet and only left me with James' things.  "You burn any of this and I'm going to have it all recreated.  Until you talk to him, I'm keeping everything that was Alex Kennedy.  I'll fucking be him if I have to, but you will not ruin your life because some of this guys friends know who you are.  They haven't burnt you yet.  I haven't burnt you.  You have to trust someone, some time."
+
+"Fuck you!"  I growled as I dropped the pillow over my head.  "Get out."  I said.
+
+Benji was already leaving.  "I love you too Alex.  Sleep well."
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzQ5MjA3ODk5LC02NjAyODExNDIsLTE2MT
-kwNDg2MjgsLTkyODA2NTI1MV19
+eyJoaXN0b3J5IjpbLTIwMTkyNzU4MDEsLTY2MDI4MTE0MiwtMT
+YxOTA0ODYyOCwtOTI4MDY1MjUxXX0=
 -->
