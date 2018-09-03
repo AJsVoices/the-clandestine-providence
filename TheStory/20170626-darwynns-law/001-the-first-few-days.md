@@ -13,7 +13,9 @@ Sage sighed, "Nox he's gone.  Why do you want me to do that?"
 
 "Sage will you do it or not?  Or do I need to go let Trix do it?"  It was a threat I could use now.  My best friend wouldn't do it for me, then I'd just seek out one of the two other hackers I already knew.
 
+He sighed.  "No, I'll do it.  I'll call you when I have a location."
 
+"Thank you."  But Sage was already gone.  I sighed and flopped back on my bed.  I should go downstairs to the gym.  Or maybe I should go to the beach with my brothers.  I could go take them to play paint ball.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjIzMDE2MDgxLC0zNDczNzE4MDldfQ==
+eyJoaXN0b3J5IjpbLTE4ODU0NjExNjcsLTM0NzM3MTgwOV19
 -->
