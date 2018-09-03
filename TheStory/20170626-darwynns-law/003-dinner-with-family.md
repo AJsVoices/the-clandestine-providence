@@ -46,7 +46,19 @@ Sage sighed.  "He's in Vegas."
 "What?"  I asked.
 
 "His phone is in Vegas.  His secondary phone is in Vegas."  
+
+"How do you know he's got two phones, Sage?"  I asked.  I wasn't liking this at all.
+
+"I do work for him, and his ping came back the same ping as that phone location."
+
+"You stalk him?"  I asked.
+
+"I keep tabs on him.  He knows I do."
+
+"You keep tabs on everyone you work for.  It's part of what you do and why you do it." 
+
+Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you want specifics.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMDExNDI5MiwxNTgwOTY0NjIyLC01Nz
-YxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbLTE5ODY2NDI2MTUsMTU4MDk2NDYyMiwtNT
+c2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
