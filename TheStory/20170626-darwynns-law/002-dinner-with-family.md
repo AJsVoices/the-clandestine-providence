@@ -26,6 +26,12 @@ I asked, "Why?"
 I laughed.  "I don't think you mom would like talking to me.  I'm everything she doesn't want you to be."
 
 Kyle laughed too.  "Yeah, but you are put together, have a job, you make money to live in this place.  Put you in a suit and I guauntee my mom will listen to you even with the eye liner and nail polish and the dyed tips."
+
+I shrugged, "Maybe, if you want me to.  You should see Dorian."
+
+Laker agreed as he took Kyle's hand and pulled him towards the subway station.  "Dorian is all business, but you'd never know he was gay until you got a glimpse of him with his husband."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzg5MzIwOSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbLTYwMDMyOTA5Niw5MTA5ODMyNzddfQ==
 -->
