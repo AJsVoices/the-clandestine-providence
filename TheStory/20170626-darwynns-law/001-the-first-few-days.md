@@ -11,7 +11,9 @@ It rang four times then went to voice mail and I hung up and dialed again.  On t
 
 Sage sighed, "Nox he's gone.  Why do you want me to do that?"
 
-"Sage will you do it or not?  Or do I need to go let Trix do it?"  It was a threat I could use now.  My best friend wouldn't do it for me, then I'd just seek out one of the three hackers I already kne
+"Sage will you do it or not?  Or do I need to go let Trix do it?"  It was a threat I could use now.  My best friend wouldn't do it for me, then I'd just seek out one of the two other hackers I already knew.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgxNjA0MjgyNiwtMzQ3MzcxODA5XX0=
+eyJoaXN0b3J5IjpbNjIzMDE2MDgxLC0zNDczNzE4MDldfQ==
 -->
