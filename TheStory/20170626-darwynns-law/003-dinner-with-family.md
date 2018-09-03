@@ -21,8 +21,14 @@ I shook my head, "Same as usual.  The boys want pasta though."
 
 She giggled, "He said you'd say that.  And you?"
 
+"He knows what I like."  
+
+She nodded, "I'll tell him so, sir.  I hope you have a great meal."
+
+Rider laughed, "I'm sure we will."
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA1OTk3NjM4NywxODg3NDE5OTg1LDkxMD
+eyJoaXN0b3J5IjpbLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMD
 k4MzI3N119
 -->
