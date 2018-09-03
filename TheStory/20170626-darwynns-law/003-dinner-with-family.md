@@ -69,9 +69,15 @@ I blinked at him.  "Uh.  No.  He's in Vegas."
 
 Both of my brothers mouthed "oh".  But didn't say anything.  Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine he was calliing Dorian too.  Or my father.  I can't imagine that he'd do it all by himself.  
 
-Why was it taht I let my brother do that for me.  I could have managed, I told myself.
+Why was it that I let my brother do that for me.  I could have managed, I told myself.  Laker grabbed my hand and squeezed, "Rider will take care of it Nox, relax.  We got this, don't stress over it.  You can go yell at him in a few hours."
+
+Kyle asked, "What's going on?"
+
+Laker smiled at his crush and blushed a little, "It's going to sound crazy if I tell you."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MzEyNDY5MzAsLTEyNjkzOTQyNTgsMT
-U4MDk2NDYyMiwtNTc2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgz
-Mjc3XX0=
+eyJoaXN0b3J5IjpbNzgzOTM4NTI2LC0xODMxMjQ2OTMwLC0xMj
+Y5Mzk0MjU4LDE1ODA5NjQ2MjIsLTU3NjE3MzYwMCwxODg3NDE5
+OTg1LDkxMDk4MzI3N119
 -->
