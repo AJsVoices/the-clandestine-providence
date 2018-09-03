@@ -45,8 +45,23 @@ I looked back at my brother, "Do you often wonder about how good I am in bed?"
 
 Laker blushed, "No.  But you had Michaela and Alex and I'm sure you've had a lot others too."  
 
+"You think a lot about my sex life."
+
+Laker hung his head.  "No.  I just..."
+
+"You just what?"
+
+"How'd ya know?"
+
+"How'd I know what?"
+
+Rider chipped in, "That you liked boys.  Laker's got a friend..."  He grinned at his brother.
+
+"Is he gay?"  I asked.
+
+Laker shrugged.  "I don't know."
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg1MDczOTk2NSwtNzMzNjMzNDA3LDIwMT
-YyMjI0MTcsLTM0NzM3MTgwOV19
+eyJoaXN0b3J5IjpbLTQzMDUyNTY1NiwxODUwNzM5OTY1LC03Mz
+M2MzM0MDcsMjAxNjIyMjQxNywtMzQ3MzcxODA5XX0=
 -->
