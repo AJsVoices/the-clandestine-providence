@@ -15,7 +15,9 @@ Sage sighed, "Nox he's gone.  Why do you want me to do that?"
 
 He sighed.  "No, I'll do it.  I'll call you when I have a location."
 
-"Thank you."  But Sage was already gone.  I sighed and flopped back on my bed.  I should go downstairs to the gym.  Or maybe I should go to the beach with my brothers.  I could go take them to play paint ball.
+"Thank you."  But Sage was already gone.  I sighed and flopped back on my bed.  I should go downstairs to the gym.  Or maybe I should go to the beach with my brothers.  I could go take them to play paintball.  I could have Dorian bring Drake over.  No - I forgot he's with Reginald and the other dragons doing dragon things.  Whatever the fuck that was.
+
+I pulled myself up off my bed and paced.  Ophelia meowed at me
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4ODU0NjExNjcsLTM0NzM3MTgwOV19
+eyJoaXN0b3J5IjpbMjAxNjIyMjQxNywtMzQ3MzcxODA5XX0=
 -->
