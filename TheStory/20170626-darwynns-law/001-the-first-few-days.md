@@ -39,8 +39,14 @@ Rider chuckled, "Did Sage agree?"
 
 Rider patted my shoulder, "He's alright.  I'm sure he's just busy."
 
-Laker 
+"I mean who wouldn't love to be with you.  You cook, you clean, I'm sure you are a good fuck."
+
+I looked back at my brother, "Do you often wonder about how good I am in bed?"
+
+Laker blushed, "No.  But you had Michaela and Alex and I'm sure you've had a lot others too."  
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI1NjMyMjIwMywtNzMzNjMzNDA3LDIwMT
+eyJoaXN0b3J5IjpbMTg1MDczOTk2NSwtNzMzNjMzNDA3LDIwMT
 YyMjI0MTcsLTM0NzM3MTgwOV19
 -->
