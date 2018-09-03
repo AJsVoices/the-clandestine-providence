@@ -73,9 +73,11 @@ Laker shook his head, "He'd never hurt me."
 
 "Do you think he'll be upset?"
 
-"N
+"No."  They both said at the same time.  But it was Laker who continued, "Dad, just wants us to be happy but he wants grandkids too."
+
+"There are always ways for that boys."  I grabbed Laker's controller.  "Go invite him for lunch at Marco's."  
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MjY2NTMwNzksMTg1MDczOTk2NSwtNz
-MzNjMzNDA3LDIwMTYyMjI0MTcsLTM0NzM3MTgwOV19
+eyJoaXN0b3J5IjpbLTIzOTcxMTExNiwxODUwNzM5OTY1LC03Mz
+M2MzM0MDcsMjAxNjIyMjQxNywtMzQ3MzcxODA5XX0=
 -->
