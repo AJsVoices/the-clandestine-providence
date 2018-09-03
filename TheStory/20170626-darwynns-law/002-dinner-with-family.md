@@ -31,8 +31,16 @@ I shrugged, "Maybe, if you want me to.  You should see Dorian."
 
 Laker agreed as he took Kyle's hand and pulled him towards the subway station.  "Dorian is all business, but you'd never know he was gay until you got a glimpse of him with his husband."
 
-Laker and Kyle talked in whispers together.  Rider and I tried to ignore them by standing instead of sitting across from them. Rider bumped my hip and I turned to look behind me and saw my little brother kissing his first boy.  I smirked and nodded my head in the direction of the front of the c
+Laker and Kyle talked in whispers together.  Rider and I tried to ignore them by standing instead of sitting across from them. Rider bumped my hip and I turned to look behind me and saw my little brother kissing his first boy.  I smirked and nodded my head in the direction of the front of the car.  Rider just chuckled.  "You think I should tell them to get a room?"
+
+I shook my head.  "It's just a kiss."
+
+Rider laughed, "Like you and Alex have just a kiss."
+
+"Did your dad have the whole birds and bees talk with you?"  I asked Rider.
+
+"No but we've had health class.  Abstinence is the best policy and if you are going to have sex always protect your
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzc3ODA0MjQ4LC02MDAzMjkwOTYsOTEwOT
-gzMjc3XX0=
+eyJoaXN0b3J5IjpbLTE5Mzc4MTY1OTYsLTYwMDMyOTA5Niw5MT
+A5ODMyNzddfQ==
 -->
