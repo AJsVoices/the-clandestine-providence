@@ -33,8 +33,20 @@ My phone chirped and I glanced at the message.  "It's Sage I'll be back in a min
 
 Rider laughed, "Don't leave me with these two."
 
-I gave him a wry smile and shrugged.  "Sorry."  I was dialing Sage's number as I headed outside to take the call.  It wasn't much quieter outs
+I gave him a wry smile and shrugged.  "Sorry."  I was dialing Sage's number as I headed outside to take the call.  It wasn't much quieter outside but at least I wouldn't be disrupting someone else's dinner.
+
+"You got a location?"  I asked Sage when he picked up.
+
+"I do."  He said.  "He wasn't hard to find.  But you aren't going to like it."
+
+"Where is he?" I asked, "As long as he's not dead I think I can deal with it."
+
+Sage sighed.  "He's in Vegas."
+
+"What?"  I asked.
+
+"His phone is in Vegas.  His secondary phone is in Vegas."  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU5NDA2MTU5NSwxNTgwOTY0NjIyLC01Nz
+eyJoaXN0b3J5IjpbLTEyMDExNDI5MiwxNTgwOTY0NjIyLC01Nz
 YxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
 -->
