@@ -61,8 +61,10 @@ Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you wan
 
 "I want specifics Sage."  I said then hung up.  My head was reeling.  He left.  Without saying good-bye.  What the fuck!  I thought things had been decided we'd try.  We'd make something work.  I guessed I was wrong.  Fuck!
 
-I stepped inside the dim restaruante and I was greeted with a gust of cold air that sent shivers down my spin
+I stepped inside the dim restaurante and I was greeted with a gust of cold air that sent shivers down my spine.  Alex had left.  He'd been ignoring me.  Was Ant right?
+
+When I got back to the table Rider and Laker were watching me carefully.  "He's dead?"  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNzI5NjgwODQsMTU4MDk2NDYyMiwtNT
+eyJoaXN0b3J5IjpbLTEyNjkzOTQyNTgsMTU4MDk2NDYyMiwtNT
 c2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
