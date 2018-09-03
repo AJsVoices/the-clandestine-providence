@@ -65,9 +65,17 @@ Rider giggled.  "He's into Laker, Lake isn't sure he wants to be into him or not
 
 I sat up and squished between my brothers and leaned against Laker.  "Look, man.  You don't have to decide now.  Take it slow, if you like him, ask him out.  Worst he can say is no, and if he lays a finger on you for asking I want to know."
 
-Laker shook his hea
+Laker shook his head, "He'd never hurt me."
+
+"Good."  I smiled at him.  "Bring him over for dinner one day.  I'll cook, we'll all have fun.  And you can see where it goes, in a safe environment.  And I have plenty of condoms if you need them."  The latter part of my words made my brother blush bright red.
+
+"Dad would never entertain this idea."
+
+"Do you think he'll be upset?"
+
+"N
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTMxNTk1OTI4LDE4NTA3Mzk5NjUsLTczMz
-YzMzQwNywyMDE2MjIyNDE3LC0zNDczNzE4MDldfQ==
+eyJoaXN0b3J5IjpbLTE5MjY2NTMwNzksMTg1MDczOTk2NSwtNz
+MzNjMzNDA3LDIwMTYyMjI0MTcsLTM0NzM3MTgwOV19
 -->
