@@ -31,7 +31,8 @@ I shrugged, "Maybe, if you want me to.  You should see Dorian."
 
 Laker agreed as he took Kyle's hand and pulled him towards the subway station.  "Dorian is all business, but you'd never know he was gay until you got a glimpse of him with his husband."
 
-
+Laker and Rider talked in whisperes together.  Rider and I tried to ignore them by standing instead of sitting ac
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYwMDMyOTA5Niw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbMjQyNDE4Mzg3LC02MDAzMjkwOTYsOTEwOT
+gzMjc3XX0=
 -->
