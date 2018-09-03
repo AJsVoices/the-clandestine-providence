@@ -67,9 +67,11 @@ When I got back to the table Rider and Laker were watching me carefully.  "He's 
 
 I blinked at him.  "Uh.  No.  He's in Vegas."
 
-Both of my brothers mouthed "oh".  But didn't say anything.  Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine h
+Both of my brothers mouthed "oh".  But didn't say anything.  Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine he was calliing Dorian too.  Or my father.  I can't imagine that he'd do it all by himself.  
+
+Why was it taht I let my brother do that for me.  I could have managed, I told myself.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTczMzQ5Njc4MywtMTI2OTM5NDI1OCwxNT
-gwOTY0NjIyLC01NzYxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMy
-NzddfQ==
+eyJoaXN0b3J5IjpbLTE4MzEyNDY5MzAsLTEyNjkzOTQyNTgsMT
+U4MDk2NDYyMiwtNTc2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgz
+Mjc3XX0=
 -->
