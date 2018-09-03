@@ -61,7 +61,13 @@ Rider chipped in, "That you liked boys.  Laker's got a friend..."  He grinned at
 
 Laker shrugged.  "I don't know."
 
+Rider giggled.  "He's into Laker, Lake isn't sure he wants to be into him or not."
+
+I sat up and squished between my brothers and leaned against Laker.  "Look, man.  You don't have to decide now.  Take it slow, if you like him, ask him out.  Worst he can say is no, and if he lays a finger on you for asking I want to know."
+
+Laker shook his hea
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQzMDUyNTY1NiwxODUwNzM5OTY1LC03Mz
-M2MzM0MDcsMjAxNjIyMjQxNywtMzQ3MzcxODA5XX0=
+eyJoaXN0b3J5IjpbOTMxNTk1OTI4LDE4NTA3Mzk5NjUsLTczMz
+YzMzQwNywyMDE2MjIyNDE3LC0zNDczNzE4MDldfQ==
 -->
