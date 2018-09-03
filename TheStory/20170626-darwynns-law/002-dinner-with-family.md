@@ -39,8 +39,14 @@ Rider laughed, "Like you and Alex have just a kiss."
 
 "Did your dad have the whole birds and bees talk with you?"  I asked Rider.
 
-"No but we've had health class.  Abstinence is the best policy and if you are going to have sex always protect your
+"No but we've had health class.  Abstinence is the best policy and if you are going to have sex always protect yourself."
+
+I nodded.  "This goes for you too, but my bed side table always has condoms."
+
+Rider laughed, "I know and lube and toys and..."  He smirked, "I took a few the other night when we went out."
+
+"I'd prefer it if you bring your your girls back to the house and not some sleezy motel or something.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5Mzc4MTY1OTYsLTYwMDMyOTA5Niw5MT
-A5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbMTM4MDAyOTEzLC02MDAzMjkwOTYsOTEwOT
+gzMjc3XX0=
 -->
