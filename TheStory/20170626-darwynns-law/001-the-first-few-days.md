@@ -22,7 +22,15 @@ I pulled myself up off my bed and paced.  Ophelia meowed at me, "What?"
 She threw her tail up and then curled up and ignored me.  "Yeah yeah yeah.  I know I'm a mess. You'd be a mess too."  I could see her tail twitch and then she put her head down on her paws and ignored me more.  Stupid cat.  Though I said it lovingly.  I reached down and rubbed her head and then left her alone.  She'd scratch me just the same.
 
 It was mid morning which  meant I'd been up for 6 hours already.  My brothers were playing video games and I sat I flopped down in their laps and then grunted but didn't say anything more as they raced around whatever track they were playing.  I glanced at the screen and saw no race cars, they were playing some shoot em up game.  Each on their own TV screen.  I wasn't sure where I got a second one, but there was no telling what Dorian and/or Kai bought my brothers.
+
+Kai treated Laker and Rider like grandkids.  I don't know why, but he adored them almost as much as his other grand kids.  I was happy that he did, but I wondered why.  Maybe it was all the lost time.
+
+"You want to go out to eat tonight?"  Laker asked.  "Marco said he'd save us all a table if we could convince you to come out with us?"  
+
+"Can we do lunch?  I might be busy later tonight."
+
+Rider chuckle
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDM0NjY0NDc5LDIwMTYyMjI0MTcsLTM0Nz
-M3MTgwOV19
+eyJoaXN0b3J5IjpbMTYzOTg4NTkxNiwyMDE2MjIyNDE3LC0zND
+czNzE4MDldfQ==
 -->
