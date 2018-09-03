@@ -55,8 +55,12 @@ Rider grinned up at me, "He's happier here with you.  I think Dad pushes the gir
 
 "I don't blame him.  My dad blames Dorian 80% of the time.  He's just now starting to understand that I was thinking about boys long before I even knew Dorian liked men."
 
-"Yeah, but Kai's looking for excuses to make you not his son.  Or that's how I take it.  
+"Yeah, but Kai's looking for excuses to make you not his son.  Or that's how I take it.  He doesn't want to be the dad of the guy who's different.  Cause it means that there is a lot to say about nurture versus nature."
+
+"You've talked with my dad?"  I asked Rider.
+
+He nodded.  "I talk with everyone about you.  Sometimes I feel like the older brother and then there are times I feel like I need my big brother, and you can't be my big brother if you are falling apart.  So yeah I talk to Margon
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxODM4NDk2MywtNjAwMzI5MDk2LDkxMD
-k4MzI3N119
+eyJoaXN0b3J5IjpbOTYxODc3MjI2LC02MDAzMjkwOTYsOTEwOT
+gzMjc3XX0=
 -->
