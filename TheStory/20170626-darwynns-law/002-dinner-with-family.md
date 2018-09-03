@@ -19,7 +19,13 @@ I asked, "Why?"
 
 "No.  But she doesn't think about it like that."  
 
-"She's just looking out for you.  I got a beat down or two as a kid growing up.  Kissed a boy and he kicked the shit out of me.  I got a few for wearing eye liner and nail polish.
+"She's just looking out for you.  I got a beat down or two as a kid growing up.  Kissed a boy and he kicked the shit out of me.  I got a few for wearing eye liner and nail polish.  Though no one has ever accused me of looking like a girl."
+
+"I should let you talk to my mom."
+
+I laughed.  "I don't think you mom would like talking to me.  I'm everything she doesn't want you to be."
+
+Kyle laughed too.  "Yeah, but you are put together, have a job, you make money to live in this place.  Put you in a suit and I guauntee my mom will listen to you even with the eye liner and nail polish and the dyed tips."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExODcxNDg2ODcsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbLTIwMzg5MzIwOSw5MTA5ODMyNzddfQ==
 -->
