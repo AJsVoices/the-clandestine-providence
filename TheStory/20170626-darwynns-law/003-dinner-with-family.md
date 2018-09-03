@@ -63,8 +63,13 @@ Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you wan
 
 I stepped inside the dim restaurante and I was greeted with a gust of cold air that sent shivers down my spine.  Alex had left.  He'd been ignoring me.  Was Ant right?
 
-When I got back to the table Rider and Laker were watching me carefully.  "He's dead?"  
+When I got back to the table Rider and Laker were watching me carefully.  "He's dead?"  Rider asked.
+
+I blinked at him.  "Uh.  No.  He's in Vegas."
+
+Both of my brothers mouthed "oh".  But didn't say anything.  Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine h
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNjkzOTQyNTgsMTU4MDk2NDYyMiwtNT
-c2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbMTczMzQ5Njc4MywtMTI2OTM5NDI1OCwxNT
+gwOTY0NjIyLC01NzYxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMy
+NzddfQ==
 -->
