@@ -35,8 +35,12 @@ Rider chuckled, "Did Sage agree?"
 
 "You'll owe him big."  Laker laughed.
 
-"I'm okay with that.  I just need to find him.  I just hope he's not lying dead in a ditch somewhere."  I sighed and my brother
+"I'm okay with that.  I just need to find him.  I just hope he's not lying dead in a ditch somewhere."  I sighed.  
+
+Rider patted my shoulder, "He's alright.  I'm sure he's just busy."
+
+Laker 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTczMzYzMzQwNywyMDE2MjIyNDE3LC0zND
-czNzE4MDldfQ==
+eyJoaXN0b3J5IjpbMTI1NjMyMjIwMywtNzMzNjMzNDA3LDIwMT
+YyMjI0MTcsLTM0NzM3MTgwOV19
 -->
