@@ -57,8 +57,12 @@ Sage sighed.  "He's in Vegas."
 
 "You keep tabs on everyone you work for.  It's part of what you do and why you do it." 
 
-Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you want specifics.
+Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you want specifics."
+
+"I want specifics Sage."  I said then hung up.  My head was reeling.  He left.  Without saying good-bye.  What the fuck!  I thought things had been decided we'd try.  We'd make something work.  I guessed I was wrong.  Fuck!
+
+I stepped inside the dim restaruante and I was greeted with a gust of cold air that sent shivers down my spin
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5ODY2NDI2MTUsMTU4MDk2NDYyMiwtNT
+eyJoaXN0b3J5IjpbLTEyNzI5NjgwODQsMTU4MDk2NDYyMiwtNT
 c2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
