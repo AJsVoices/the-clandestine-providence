@@ -5,7 +5,13 @@ Joe was nice enough to take my number said he'd text me if he saw Alex.  But I h
 
 It rang four times then went to voice mail and I hung up and dialed again.  On the third ring Sage answered, "This better be important."
 
-"It is to me."  I said 
+"It is to me."  I said, there was a hitch in my voice and I heard Sage sit up.  "What's wrong, Nox?"
+
+"I need you to track Alex's number."
+
+Sage sighed, "Nox he's gone.  Why do you want me to do that?"
+
+"Sage will you do it or not?  Or do I need to go let Trix do it?"  It was a threat I could use now.  My best friend wouldn't do it for me, then I'd just seek out one of the three hackers I already kne
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3MTU5MTU5MCwtMzQ3MzcxODA5XX0=
+eyJoaXN0b3J5IjpbMTgxNjA0MjgyNiwtMzQ3MzcxODA5XX0=
 -->
