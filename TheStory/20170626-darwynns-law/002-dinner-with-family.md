@@ -9,7 +9,17 @@ He flipped my hand to examine the black nail polish. "Why don't you match them?"
 
 "I don't have the color nail polish so it's easier just to stick with black."
 
-"My mom won't let me 
+"My mom won't let me do any of that."  He said.
+
+I asked, "Why?"
+
+"She doesn't want me to look like a girl."  Kyle groaned out.
+
+"I look like a girl?"  I grinned at him.
+
+"No.  But she doesn't think about it like that."  
+
+"She's just looking out for you.  I got a beat down or two as a kid growing up.  Kissed a boy and he kicked the shit out of me.  I got a few for wearing eye liner and nail polish.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MDczMzU0NTYsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbLTExODcxNDg2ODcsOTEwOTgzMjc3XX0=
 -->
