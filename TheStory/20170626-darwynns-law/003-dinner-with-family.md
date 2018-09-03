@@ -75,9 +75,11 @@ Kyle asked, "What's going on?"
 
 Laker smiled at his crush and blushed a little, "It's going to sound crazy if I tell you."
 
+"Like you guys aren't already crazy."  
 
+I grinned at him.  "The guy I liked just up and left without saying anything.  Not even to fuck off.  I thought we were going to work through it."  I sighed
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzgzOTM4NTI2LC0xODMxMjQ2OTMwLC0xMj
-Y5Mzk0MjU4LDE1ODA5NjQ2MjIsLTU3NjE3MzYwMCwxODg3NDE5
-OTg1LDkxMDk4MzI3N119
+eyJoaXN0b3J5IjpbNDg1ODczNzMsLTE4MzEyNDY5MzAsLTEyNj
+kzOTQyNTgsMTU4MDk2NDYyMiwtNTc2MTczNjAwLDE4ODc0MTk5
+ODUsOTEwOTgzMjc3XX0=
 -->
