@@ -45,8 +45,14 @@ I nodded.  "This goes for you too, but my bed side table always has condoms."
 
 Rider laughed, "I know and lube and toys and..."  He smirked, "I took a few the other night when we went out."
 
-"I'd prefer it if you bring your your girls back to the house and not some sleezy motel or something.  
+"I'd prefer it if you bring your your girls back to the house and not some sleezy motel or something."  I told Rider.  
+
+He didn't blush.  "I'll keep that in mind.  Though I think Laker might have issues with that."
+
+"Laker can bring his boys home."
+
+Rider grinned up at me, "He's happier here with you.  I think Dad pushes the girlfriend thing a little too much for him.  It's not that he'd hate Lake or anything but
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM4MDAyOTEzLC02MDAzMjkwOTYsOTEwOT
-gzMjc3XX0=
+eyJoaXN0b3J5IjpbLTcxMTE0NDUsLTYwMDMyOTA5Niw5MTA5OD
+MyNzddfQ==
 -->
