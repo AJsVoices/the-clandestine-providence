@@ -1,5 +1,7 @@
 # The First Few Days
-Vacations were supposed to be for destressing.  Not for me.  Rider and Laker tried to get me to take them to the beach.  Mia happily took them for me.  I couldn't deal with the sand right now.  I was a mess.  A pile of fucking nerves because Alex's doorman, Joe hadn't seen Alex since
+Vacations were supposed to be for destressing.  Not for me.  Rider and Laker tried to get me to take them to the beach.  Mia happily took them for me.  I couldn't deal with the sand right now.  I was a mess.  A pile of fucking nerves because Alex's doorman, Joe hadn't seen Alex since the night I walked out on him.  I'd been by the apartment - both of them - everyday for since then and he hadn't seen him.  
+
+Joe was nice enough to take my number said he'd text me if he saw Alex.  But I hadn't gotten anything from him either.  Alex neither.  I was getting concerned.  And that was making me dream of Alex and dreaming of 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUzMDk4NDY5LC0zNDczNzE4MDldfQ==
+eyJoaXN0b3J5IjpbMTkxMjg5NjQ3MywtMzQ3MzcxODA5XX0=
 -->
