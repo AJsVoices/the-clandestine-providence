@@ -3,7 +3,10 @@ Marco had us sitting in a corner away from everyone else and there were no menus
 
 "Shell fish."
 
-Rider laughed, "Us too."
+Rider laughed, "Us too.  Anything else?"
+
+Kyle shook his he
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbMTQyMzAyMjQ5NywxODg3NDE5OTg1LDkxMD
+k4MzI3N119
 -->
