@@ -51,8 +51,12 @@ He didn't blush.  "I'll keep that in mind.  Though I think Laker might have issu
 
 "Laker can bring his boys home."
 
-Rider grinned up at me, "He's happier here with you.  I think Dad pushes the girlfriend thing a little too much for him.  It's not that he'd hate Lake or anything but
+Rider grinned up at me, "He's happier here with you.  I think Dad pushes the girlfriend thing a little too much for him.  It's not that he'd hate Lake or anything but I think he's afraid Dad will hate you for it."
+
+"I don't blame him.  My dad blames Dorian 80% of the time.  He's just now starting to understand that I was thinking about boys long before I even knew Dorian liked men."
+
+"Yeah, but Kai's looking for excuses to make you not his son.  Or that's how I take it.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTcxMTE0NDUsLTYwMDMyOTA5Niw5MTA5OD
-MyNzddfQ==
+eyJoaXN0b3J5IjpbMTMxODM4NDk2MywtNjAwMzI5MDk2LDkxMD
+k4MzI3N119
 -->
