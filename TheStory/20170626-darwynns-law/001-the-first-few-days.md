@@ -29,8 +29,14 @@ Kai treated Laker and Rider like grandkids.  I don't know why, but he adored the
 
 "Can we do lunch?  I might be busy later tonight."
 
-Rider chuckle
+Rider chuckled, "Did Sage agree?"
+
+"He did.  But not lightly."
+
+"You'll owe him big."  Laker laughed.
+
+"I'm okay with that.  I just need to find him.  I just hope he's not lying dead in a ditch somewhere."  I sighed and my brother
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYzOTg4NTkxNiwyMDE2MjIyNDE3LC0zND
+eyJoaXN0b3J5IjpbLTczMzYzMzQwNywyMDE2MjIyNDE3LC0zND
 czNzE4MDldfQ==
 -->
