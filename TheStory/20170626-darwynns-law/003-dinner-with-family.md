@@ -13,10 +13,16 @@ Kyle shook his head.  "No, don't think so.  You all are allergic to shell fish?"
 
 Rider shrugged, "We eat a lot of chicken while we are here in New York.  I think the only time we get pasta is when we come here."
 
-"That has to get boring."
+"That has to get boring." Kyle said as the waitress came by and set down a basket of bread with garlic flavored oil with other herbs and an antipasto dish that I loved.  
+
+She smiled at me, "The chef asks if there are any new allergies."
+
+I shook my head, "Same as usual.  The boys want pasta though."
+
+She giggled, "He said you'd say that.  And you?"
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk3NDQ2ODg4NCwxODg3NDE5OTg1LDkxMD
+eyJoaXN0b3J5IjpbMjA1OTk3NjM4NywxODg3NDE5OTg1LDkxMD
 k4MzI3N119
 -->
