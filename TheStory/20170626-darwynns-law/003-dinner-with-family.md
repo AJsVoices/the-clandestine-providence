@@ -27,8 +27,8 @@ She nodded, "I'll tell him so, sir.  I hope you have a great meal."
 
 Rider laughed, "I'm sure we will."
 
-
+Dinner went as well as to be expected.  Laker and Rider went on and on about the Rockies.  And Kyle listened politely.  I got to listen to my brothers and their midwestern non-accented voices picking up the New York ticks.  I hadn't paid much mind to it before but there was a definite contrast to how Kyle and I spoke to my brothers and they were picking up the  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMD
-k4MzI3N119
+eyJoaXN0b3J5IjpbMTU4MDk2NDYyMiwtNTc2MTczNjAwLDE4OD
+c0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
