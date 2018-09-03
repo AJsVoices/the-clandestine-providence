@@ -19,8 +19,10 @@ He sighed.  "No, I'll do it.  I'll call you when I have a location."
 
 I pulled myself up off my bed and paced.  Ophelia meowed at me, "What?"
 
-She threw her tail up and then curled up and ignored me.  "Yeah yeah yeah.  I know I'm
+She threw her tail up and then curled up and ignored me.  "Yeah yeah yeah.  I know I'm a mess. You'd be a mess too."  I could see her tail twitch and then she put her head down on her paws and ignored me more.  Stupid cat.  Though I said it lovingly.  I reached down and rubbed her head and then left her alone.  She'd scratch me just the same.
+
+It was mid morning w
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI1MjUxNzIzNywyMDE2MjIyNDE3LC0zND
-czNzE4MDldfQ==
+eyJoaXN0b3J5IjpbLTExMzA2NTg0OTAsMjAxNjIyMjQxNywtMz
+Q3MzcxODA5XX0=
 -->
