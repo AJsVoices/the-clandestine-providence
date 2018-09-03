@@ -27,8 +27,14 @@ She nodded, "I'll tell him so, sir.  I hope you have a great meal."
 
 Rider laughed, "I'm sure we will."
 
-Dinner went as well as to be expected.  Laker and Rider went on and on about the Rockies.  And Kyle listened politely.  I got to listen to my brothers and their midwestern non-accented voices picking up the New York ticks.  I hadn't paid much mind to it before but there was a definite contrast to how Kyle and I spoke to my brothers and they were picking up the  
+Dinner went as well as to be expected.  Laker and Rider went on and on about the Rockies.  And Kyle listened politely.  I got to listen to my brothers and their midwestern non-accented voices picking up the New York ticks.  I hadn't paid much mind to it before but there was a definite contrast to how Kyle and I spoke to my brothers and they were picking up the  same lit to their voices even being for only a week or so.
+
+My phone chirped and I glanced at the message.  "It's Sage I'll be back in a minute."
+
+Rider laughed, "Don't leave me with these two."
+
+I gave him a wry smile and shrugged.  "Sorry."  I was dialing Sage's number as I headed outside to take the call.  It wasn't much quieter outs
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4MDk2NDYyMiwtNTc2MTczNjAwLDE4OD
-c0MTk5ODUsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbLTU5NDA2MTU5NSwxNTgwOTY0NjIyLC01Nz
+YxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
 -->
