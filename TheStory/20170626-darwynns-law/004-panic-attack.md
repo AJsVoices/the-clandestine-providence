@@ -9,9 +9,11 @@ But even my dreary thoughts didn't turn me from hailing a cab.  It didn't stop m
 
 I could feel my heart racing and my skin getting slick with sweat.  Thankfully I didn't have to wait long before my seats were called.  I hated the back of the plane but you take what you can get on short notice.  Boarding was easy and unfortunately I had a window seat.  Fuck!  Just what I needed.
 
-I pulled the window shade down, buckled up and pressed my back into the back of the
+I pulled the window shade down, buckled up and pressed my back into the back of the chair gripped the arms and closed my eyes.  I was so in the middle of a panic attack.  I was grateful that I had a pair of earbuds on me at all times at least when the plane got in the air I could listen to my music.  Or music of some sort.  
+
+I should nap, but I knew that wasn't going to happen.  My heart felt like it was pounding out of my chest as the old la
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NTc1OTAwMCwtODIyNDYxMjI0LDY4MT
-k5NjUwMSwtODE2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2
-LDEwMzU2MjAyNzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbODgxODQyNzQ5LC04MjI0NjEyMjQsNjgxOT
+k2NTAxLC04MTYzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYs
+MTAzNTYyMDI3OSwxOTE4OTQ0MzMyXX0=
 -->
