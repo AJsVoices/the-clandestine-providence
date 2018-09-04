@@ -11,9 +11,11 @@ I could feel my heart racing and my skin getting slick with sweat.  Thankfully I
 
 I pulled the window shade down, buckled up and pressed my back into the back of the chair gripped the arms and closed my eyes.  I was so in the middle of a panic attack.  I was grateful that I had a pair of earbuds on me at all times at least when the plane got in the air I could listen to my music.  Or music of some sort.  
 
-I should nap, but I knew that wasn't going to happen.  My heart felt like it was pounding out of my chest as the old la
+I should nap, but I knew that wasn't going to happen.  My heart felt like it was pounding out of my chest as the gray haired woman and a young child sat down next to me.  The kid couldn't be more than three and I was going to go crazy if the kid whined the whole time.  Fuck!
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODgxODQyNzQ5LC04MjI0NjEyMjQsNjgxOT
-k2NTAxLC04MTYzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYs
-MTAzNTYyMDI3OSwxOTE4OTQ0MzMyXX0=
+eyJoaXN0b3J5IjpbLTExNzU4MTUyOTIsLTgyMjQ2MTIyNCw2OD
+E5OTY1MDEsLTgxNjM2OTQxMCw0Nzg5MTM0MjUsMTA0MTMxNzEy
+NiwxMDM1NjIwMjc5LDE5MTg5NDQzMzJdfQ==
 -->
