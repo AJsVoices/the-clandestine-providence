@@ -61,8 +61,16 @@ Benji laughed, "That's all Alex every does is fight - or run away.  Looks like h
 
 "We have dinner tonight.  Me and him in his room.  Let me take you there, you can shower, change and then you and he can sit down and talk."
 
-"I have nothing to change into this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't 
+"I have nothing to change into this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't want me."
+
+"No."  Benji stood up and got in my face.  "You will not go anywhere.  I can make you stay."
+
+I sighed, "That's exactly how this fight started, Alex nudging me into doing something that I knew I shouldn't do to keep my sanity."  I stepped away from him.  "You touch me and you'll find yourself on the floor in a heart beat."
+
+Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
+
+"I
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY5OTUyOTM0OCwtMTMyODAyMDY3MiwtMT
-MwODIzMTUxMV19
+eyJoaXN0b3J5IjpbLTEyNTQ1ODY4MjMsLTEzMjgwMjA2NzIsLT
+EzMDgyMzE1MTFdfQ==
 -->
