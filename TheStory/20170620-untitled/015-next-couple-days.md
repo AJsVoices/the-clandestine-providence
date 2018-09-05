@@ -13,9 +13,9 @@ So I left with the distinct feeling of a pair of brown eyes on my back.  And all
 
 Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near my place of stay so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
 
-The man looked sleazy, with his hair slicked back and his leather jacket pulled up around his ears.  He looked like he was in some gangster movie.  I walked up to him and sat down across from him, "James Hutton.  And you are Deacon 
+The man looked sleazy, with his hair slicked back and his leather jacket pulled up around his ears.  He looked like he was in some gangster movie.  I walked up to him and sat down across from him, "James Hutton.  And you are Deacon LeClaire.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTQ0MTg5MTI5LC0xODAxODk2NDc3LDYwNj
+eyJoaXN0b3J5IjpbNjk3NzIzODM0LC0xODAxODk2NDc3LDYwNj
 Q5OTU3OCwtNjk4MjA3NjcwLC03MzAyMjM4LC0xMDU5NjIwMTQx
 LC0yMDg4NzQ2NjEyXX0=
 -->
