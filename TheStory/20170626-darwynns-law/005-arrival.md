@@ -7,17 +7,17 @@ One of the male attendants was making sure no one left anything on the plane or 
 
 "I hope he's worth it."  He said with a smile, "If not I'll be in town until the morning."
 
-I looked at his name plate, "Allejandro."  I smiled, "Thanks, but I think if he throws me out I'll be leaving tonight."
+I looked at his nameplate, "Alejandro."  I smiled, "Thanks, but I think if he throws me out I'll be leaving tonight."
 
-Allenjandro laughed, "Offer still stands."  He gave me the once over and I gave him a parting smile as I headed out the door.  I could feel the other man's eyes on my back and knew I could hear him whispering to the other flight attendant, "My he's yummy."
+Alejandro laughed, "Offer still stands."  He gave me the once over and I gave him a parting smile as I headed out the door.  I could feel the other man's eyes on my back and knew I could hear him whispering to the other flight attendant, "My he's yummy."
 
 They giggled and I pretended I hadn't heard them as I headed out of the terminal.  The heat was dry and I felt warm in my hoodie, but I didn't take it off even after I'd stepped outside into the evening sun.  It was a five hour flight, but my phone told me it was only three hours later.  Time zones...  I sighed as I  texted Sage.
 
 N: I've landed.  Hotel and room?
 
-Sage texted me back immediately with the Belagio hotel and a room number.  He also texted me a name it was under - James Hutton.
+Sage texted me back immediately with the Bellagio hotel and a room number.  He also texted me a name it was under - James Hutton.
 
-I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  
+I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  I didn't believe Janice was a friend.  And I didn't think Alex floated in her circles, but I could be wrong.  So totally and utterly wrong, but I knew Alex.  Even when I didn't know know him, I knew him.  I'd been in love with a dream since I was 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTEwNzA0OTg3XX0=
+eyJoaXN0b3J5IjpbMTAzOTE1ODMwMCw5MTA3MDQ5ODddfQ==
 -->
