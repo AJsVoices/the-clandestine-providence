@@ -33,9 +33,9 @@ I listened to something loud and heavy.  It was not a usual playlist - more like
 
 The lady  next to me tapped my hand and I turned to look at her pulling out an ear bud.  "Can you turn that down?"
 
-"No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into my subconscious reliving all the memories of Alex.  It wasn't sleep I sought, it was the comfort of my blue-eyed boy who had gotten me through my suicidal days.  The fear was raging through my blood again.  I found him in the memories.  Found him where I was in a corner floating on nepenthe - the only drug that actually worked on my depression for short periods of time but it was highly illegal and se
+"No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into my subconscious reliving all the memories of Alex.  It wasn't sleep I sought, it was the comfort of my blue-eyed boy who had gotten me through my suicidal days.  The fear was raging through my blood again.  I found him in the memories.  Found him where I was in a corner floating on nepenthe - the only drug that actually worked on my depression for short periods of time but it was highly illegal and selling it to me being half human carried a steep penalty.  It drove full grown human's mad.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNjkxNjk1MDksMTQ3OTc4MDAzNCwxMj
+eyJoaXN0b3J5IjpbLTE1MjgyMzc3MDcsMTQ3OTc4MDAzNCwxMj
 c1MjAxNzcxLDE3OTk4NTI0MjYsODM1NjA3NjEzLDc2NTQ4MTk2
 NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtOD
 E2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAy
