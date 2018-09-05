@@ -43,7 +43,9 @@ I was about to ask who the fuck he was, but he spoke before I even got the first
 
 "You came all this way and now you want to leave."
 
-"He obviously has moved on."  I sai
+"He obviously has moved on."  I said looking Benji up and down.  He was perfectly dressed in his own tailored suit, his hair was perfect, he was a pretty boy.  Alex didn't need me.   A hand on my elbow pulled me from my seat and I was following after Benji.  
+
+"Come on.  Let me take you someplace we can talk."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkxNzg5ODE1NV19
+eyJoaXN0b3J5IjpbNDczODc4Njc3XX0=
 -->
