@@ -69,8 +69,13 @@ I sighed, "That's exactly how this fight started, Alex nudging me into doing som
 
 Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 
-"I
+"I'll think about it."  I said.  "What time is dinner?"
+
+"We are doing it at 6 local time.  That's in three hours."
+
+I nodded.  "Alright.  Plan your usual.  I decide if I want to be there."
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNTQ1ODY4MjMsLTEzMjgwMjA2NzIsLT
-EzMDgyMzE1MTFdfQ==
+eyJoaXN0b3J5IjpbMjAzMjkzNDUwMSwtMTMyODAyMDY3MiwtMT
+MwODIzMTUxMV19
 -->
