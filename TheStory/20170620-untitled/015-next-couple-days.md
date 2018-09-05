@@ -17,9 +17,9 @@ The man looked sleazy, with his hair slicked back and his leather jacket pulled 
 
 "I am.  Care for a drink?"
 
-I shook my head.  "No.  Thank you.  I want to know what you have for sale.
+I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxNTE4Mzg0OSw2OTc3MjM4MzQsLTE4MD
-E4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2NzAsLTczMDIyMzgs
-LTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbNTYzNTI3ODcsNjk3NzIzODM0LC0xODAxOD
+k2NDc3LDYwNjQ5OTU3OCwtNjk4MjA3NjcwLC03MzAyMjM4LC0x
+MDU5NjIwMTQxLC0yMDg4NzQ2NjEyXX0=
 -->
