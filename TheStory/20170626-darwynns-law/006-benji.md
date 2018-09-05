@@ -27,7 +27,13 @@ Benji smirked, "He'd probably have liked that if I liked boys."
 
 I licked my lips and tried not to say anything.  "I can read your thoughts you might as well say it."
 
-I shrugged, "Why do I have to say it if you can read my thoughts."  And I thought 
+I shrugged, "Why do I have to say it if you can read my thoughts."  And I let my thoughts wander to all the best parts of Alex and how he might fit with Benji.  It wasn't exactly a fantasy I'd entertain more than once, but it had the desired affect on Benji.  He was red even through that dark olive skin of his.  I smiled.
+
+"You two are perfect for each other."
+
+"Tell him that."  I growled.
+
+"I have, actually.  He refuses to read your texts.  I will admit that is one danm
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ4NjI5NjY0LC0xMzA4MjMxNTExXX0=
+eyJoaXN0b3J5IjpbMTE4Mjk5NTMxMSwtMTMwODIzMTUxMV19
 -->
