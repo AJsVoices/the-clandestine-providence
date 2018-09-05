@@ -11,7 +11,12 @@ Benji lead me down a narrow hallway into a smaller room with a rod-iron bed fram
 
 "Vampires?  You know about vampires?"  I asked.
 
-He gave me a slow cautious nod before he added.  "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can 
+He gave me a slow cautious nod before he added.  "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can do what we do.  It's why we stay away from them.  But Alex is working a job around vamps and they can't know his name, or that he's friends with me.  So no Alex anything.  You don't know me either."
+
+"Another reason I should just go."  I said but I didn't get up.
+
+Benji chuckled.  "Alex and I met after his mother died.  We working the same crowd ran into each other in the stupides
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjI5OTQ3MjI3LC0xMzA4MjMxNTExXX0=
+eyJoaXN0b3J5IjpbLTIwNDc3MjgwNTUsLTEzMDgyMzE1MTFdfQ
+==
 -->
