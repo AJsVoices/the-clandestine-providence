@@ -33,10 +33,10 @@ I listened to something loud and heavy.  It was not a usual playlist - more like
 
 The lady  next to me tapped my hand and I turned to look at her pulling out an ear bud.  "Can you turn that down?"
 
-"No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into a drea
+"No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into my subconscious reliving all the memories of Alex.  It wasn't sleep I sought, it was the comfort of my blue-eyed boy who had gotten me through my suicidal days.  The fear was raging through my blood again.  I found him in the memories.  Found him where I was in a corner floating on ____.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTkyMzkyOTExLDE3OTk4NTI0MjYsODM1Nj
-A3NjEzLDc2NTQ4MTk2NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0
-LDY4MTk5NjUwMSwtODE2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMz
-E3MTI2LDEwMzU2MjAyNzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbMTI3NTIwMTc3MSwxNzk5ODUyNDI2LDgzNT
+YwNzYxMyw3NjU0ODE5NjYsLTExNzU4MTUyOTIsLTgyMjQ2MTIy
+NCw2ODE5OTY1MDEsLTgxNjM2OTQxMCw0Nzg5MTM0MjUsMTA0MT
+MxNzEyNiwxMDM1NjIwMjc5LDE5MTg5NDQzMzJdfQ==
 -->
