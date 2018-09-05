@@ -55,10 +55,10 @@ I nodded, "She is.  Best thing that happened to Mia was being a mother."
 
 "All we do is fight."
 
-Benji laughed, "That's all Alex every does is fight - or run away.  Looks like he's doing both now at the same time now."
+Benji laughed, "That's all Alex every does is fight - or run away.  Looks like he's doing both now at the same time now."  He looked at me and frowned.  "Why did you come here?"
 
-
+"I was worried about him.  He wasn't replying to anything.  He wasn't at his apartment - either of them.  He wasn't even telling me to leave him the fuck alone so I was being oblivous to the fact that he wasn't answering, and I was busy so I didn't have time to notice.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMjgwMjA2NzIsLTEzMDgyMzE1MTFdfQ
-==
+eyJoaXN0b3J5IjpbMTU0NzgxOTU0OSwtMTMyODAyMDY3MiwtMT
+MwODIzMTUxMV19
 -->
