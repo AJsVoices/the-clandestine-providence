@@ -1,5 +1,5 @@
 # Jimmy
-My thoughts drifted to Alex the whole flight.  I was hard and wonton by the time we landed and the woman next to me hurried off the plane as quickly as she could.  As much as I wanted off the plane, I decided to wait until everyone cleared out.  It was better for me.  Even though the plane was getting chlosterphobic and I was having a hard time breathing.
+My thoughts drifted to Alex the whole flight.  I was hard and wonton by the time we landed and the woman next to me hurried off the plane as quickly as she could.  As much as I wanted off the plane, I decided to wait until everyone cleared out.  It was better for me.  Even though the plane was getting claustrophobic and I was having a hard time breathing.
 
 One of the male attendants was making sure no one left anything on the plane or sleeping still in their seats when I stood up to get out of the plane.  He looked down at me and chuckled, "I was wondering why she glared at you so."
 
@@ -39,7 +39,11 @@ I took it and nodded.  He was reading my mind that was painfully obvious.
 
 I was about to ask who the fuck he was, but he spoke before I even got the first sound out.  "I'm Benji.  I'm sure _Jimmy_ has never mentioned me before.  _Jimmy_ has an appointment why don't I entertain you for a little while.  Tell you all about _Jimmy_ and me and what we got into."
 
-"
+"I was just leaving."  I said.
+
+"You came all this way and now you want to leave."
+
+"He obviously has moved on."  I sai
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTcxMjQ4NjUwNl19
+eyJoaXN0b3J5IjpbLTkxNzg5ODE1NV19
 -->
