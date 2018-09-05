@@ -73,9 +73,9 @@ Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 
 "We are doing it at 6 local time.  That's in three hours."
 
-I nodded.  "Alright.  Plan your usual.  I decide if I want to be there."
+I nodded.  "Alright.  Plan your usual.  I decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAzMjkzNDUwMSwtMTMyODAyMDY3MiwtMT
-MwODIzMTUxMV19
+eyJoaXN0b3J5IjpbLTE4Njg1MDM4OTQsLTEzMjgwMjA2NzIsLT
+EzMDgyMzE1MTFdfQ==
 -->
