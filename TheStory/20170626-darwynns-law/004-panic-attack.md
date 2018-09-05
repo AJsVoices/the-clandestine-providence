@@ -25,10 +25,12 @@ She paled a little at my sarcasm.  I knew logically I'd be fine.  But my childho
 
 The child next to me yammered on.  I was grateful his grandmother was sitting between us but I couldn't wait for my music to be the only sound I heard.  Fuck!
 
-We started moving faster and tilting up and I squished my eyes clothes as I tried to keep my breathing even.  The kid next t
+We started moving faster and tilting up and I squished my eyes clothes as I tried to keep my breathing even.  The kid next to me screamed as his ears built up pressure and he didn't know how to react.  My body tensed and I had a death grip on the arm rests.  The woman next to me didn't know what to do, between me and the screaming child.
+
+The child eventually stopped as his ears equalized and I relaxed when the ding that signaled we could use our electronics was sounded.  I q
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDQ4ODEzMjg3LDc2NTQ4MTk2NiwtMTE3NT
-gxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtODE2MzY5NDEw
-LDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAyNzksMTkxOD
-k0NDMzMl19
+eyJoaXN0b3J5IjpbMTc3NTQyNjkyNyw3NjU0ODE5NjYsLTExNz
+U4MTUyOTIsLTgyMjQ2MTIyNCw2ODE5OTY1MDEsLTgxNjM2OTQx
+MCw0Nzg5MTM0MjUsMTA0MTMxNzEyNiwxMDM1NjIwMjc5LDE5MT
+g5NDQzMzJdfQ==
 -->
