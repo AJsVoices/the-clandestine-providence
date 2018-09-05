@@ -5,7 +5,11 @@ One of the male attendants was making sure no one left anything on the plane or 
 
 "Dreams."  I smirked, "What can I say they were sexy."
 
-"I hope he's worth it."  He said with a smile, "If not I'll be in town for 
+"I hope he's worth it."  He said with a smile, "If not I'll be in town until the morning."
+
+I looked at his name plate, "Allejandro."  I smiled, "Thanks, but I think if he throws me out I'll be leaving tonight."
+
+Allenjandro laughed, "Offer still stands."  He gave me the once over and I gave him a parting smile as I headed out the door.  I could feel the other man's eyes on my back and knew 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc0NDkyMDQ2Nl19
+eyJoaXN0b3J5IjpbLTUyOTAwMTMzOF19
 -->
