@@ -51,7 +51,9 @@ I stopped, dug in my heels and stopped our forward momentum and Benji yanked at 
 
 "I know you, Nox fucking Sétanta aught to be your full name."
 
-I smirked as I heard Alex saying that to Benji.  Benji chuckled, "Fuck
+I smirked as I heard Alex saying that to Benji.  Benji chuckled, "Fuck he was right about you.  Come on let me explain, just someplace else."
+
+I sighed and nodded.  With my ascent Benji dragged me out of the hotel and we walked.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY3MzczNjg1OV19
+eyJoaXN0b3J5IjpbLTY0Mjc1NTk2OV19
 -->
