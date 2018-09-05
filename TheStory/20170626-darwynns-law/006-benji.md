@@ -57,8 +57,12 @@ I nodded, "She is.  Best thing that happened to Mia was being a mother."
 
 Benji laughed, "That's all Alex every does is fight - or run away.  Looks like he's doing both now at the same time now."  He looked at me and frowned.  "Why did you come here?"
 
-"I was worried about him.  He wasn't replying to anything.  He wasn't at his apartment - either of them.  He wasn't even telling me to leave him the fuck alone so I was being oblivous to the fact that he wasn't answering, and I was busy so I didn't have time to notice.
+"I was worried about him.  He wasn't replying to anything.  He wasn't at his apartment - either of them.  He wasn't even telling me to leave him the fuck alone so I was being oblivious to the fact that he wasn't answering, and I was busy so I didn't have time to notice."
+
+"We have dinner tonight.  Me and him in his room.  Let me take you there, you can shower, change and then you and he can sit down and talk."
+
+"I have nothing to change into this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU0NzgxOTU0OSwtMTMyODAyMDY3MiwtMT
+eyJoaXN0b3J5IjpbMTY5OTUyOTM0OCwtMTMyODAyMDY3MiwtMT
 MwODIzMTUxMV19
 -->
