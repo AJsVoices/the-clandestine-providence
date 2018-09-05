@@ -21,9 +21,14 @@ She patted my hand.  "It's safer than driving."
 
 I laughed.  "I don't like driving."
 
-She paled a little at my sarcasm.  I knew logically I'd be fine.  But my childhood trauma had only made this worse.  My fear of heights was only enhanced by sitting by the window.  My heart pounded in my chest.  It took forever for the plane to load and the airline attendants.
+She paled a little at my sarcasm.  I knew logically I'd be fine.  But my childhood trauma had only made this worse.  My fear of heights was only enhanced by sitting by the window.  My heart pounded in my chest.  It took forever for the plane to load and the airline attendants to do their thing as we taxied down the strip to get ready for our flight.
+
+The child next to me yammered on.  I was grateful his grandmother was sitting between us but I couldn't wait for my music to be the only sound I heard.  Fuck!
+
+We started moving faster and tilting up and I squished my eyes clothes as I tried to keep my breathing even.  The kid next t
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY1NDgxOTY2LC0xMTc1ODE1MjkyLC04Mj
-I0NjEyMjQsNjgxOTk2NTAxLC04MTYzNjk0MTAsNDc4OTEzNDI1
-LDEwNDEzMTcxMjYsMTAzNTYyMDI3OSwxOTE4OTQ0MzMyXX0=
+eyJoaXN0b3J5IjpbNDQ4ODEzMjg3LDc2NTQ4MTk2NiwtMTE3NT
+gxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtODE2MzY5NDEw
+LDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAyNzksMTkxOD
+k0NDMzMl19
 -->
