@@ -29,7 +29,15 @@ I wondered if Alex heard my thoughts, fuck I wondered if he even noticed me at a
 
 "Sure you should have."  Tips said sitting down next to me.  "He's in denial, if he didn't hear you it's because he's trying so hard to forget you."
 
-"What?"  I said turning to look at him.  Tip waved his hand and an Irish 
+"What?"  I said turning to look at him.  Tip waved his hand and an Irish Red appeared in front of me from the bartenders hands.  
+
+"Your drink of choice?"
+
+I took it and nodded.  He was reading my mind that was painfully obvious.  
+
+"You are a smart man as well as hot, no wonder he's trying to forget you."  He laughed.  "Too much work."  
+
+I was about to ask who the fuck he was, but he spoke before I even got the first sound out.  "I'm Benji
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY2NzUyMzI1OCw5MTA3MDQ5ODddfQ==
+eyJoaXN0b3J5IjpbLTYxOTYzNjU0OCw5MTA3MDQ5ODddfQ==
 -->
