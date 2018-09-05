@@ -39,11 +39,13 @@ Alex knelt in front of me and frowned, "You are always like this around my birth
 
 It elicited a smile from my lips but I confessed, "I didn't know if you were coming."
 
-Alex shrugged and pressed a kiss to 
+Alex shrugged and pressed a kiss to my lips.  My fingers snaked around his neck and into his hair. He grabbed my hands and pinned them to the wall above my head with a smile.  "I don't trust you like this not to hurt me.  No touching."
+
+"I'd never hurt you."  I said in the dream and in the memory I agreed with him out loud.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzIyNjE1MTMzLDE0Nzk3ODAwMzQsMTI3NT
-IwMTc3MSwxNzk5ODUyNDI2LDgzNTYwNzYxMyw3NjU0ODE5NjYs
-LTExNzU4MTUyOTIsLTgyMjQ2MTIyNCw2ODE5OTY1MDEsLTgxNj
-M2OTQxMCw0Nzg5MTM0MjUsMTA0MTMxNzEyNiwxMDM1NjIwMjc5
-LDE5MTg5NDQzMzJdfQ==
+eyJoaXN0b3J5IjpbLTE2ODI4NTUzNjksMTQ3OTc4MDAzNCwxMj
+c1MjAxNzcxLDE3OTk4NTI0MjYsODM1NjA3NjEzLDc2NTQ4MTk2
+NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtOD
+E2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAy
+NzksMTkxODk0NDMzMl19
 -->
