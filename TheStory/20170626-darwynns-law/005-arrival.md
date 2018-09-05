@@ -21,7 +21,9 @@ I wondered how many alias' Alex had.  And I wondered what sort of business he ac
 
 A cab to the hotel was easy to come by.  I felt out of place in this City, though I looked no different than any of the others, but it was still that strange feeling like I didn't belong.
 
-I could wait in the lobby for Alex.  I could ask at the front desk.  I could go up and wait outside his room.  But instead I went into the bar.  It was busy for the time of day.  But this was Vegas and there were a lot of vacationers here too, a lot like New York.  Two men were at the bar, both about six foot, one had the tips of his hair dyed blond and the other was a bleach blonde.  I sat down three seats from them and t
+I could wait in the lobby for Alex.  I could ask at the front desk.  I could go up and wait outside his room.  But instead I went into the bar.  It was busy for the time of day.  But this was Vegas and there were a lot of vacationers here too, a lot like New York.  Two men were at the bar, both about six foot, one had the tips of his hair dyed blond and the other was a bleach blonde.  I sat down three seats from them and tried not to listen to their conversation.  
+
+"Abraham doesn't want you dead.  Not yet anyway.  They need to know what you found out.  So what did you overhear Toto?"  I recognized that v
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3NDc3OTkzMCw5MTA3MDQ5ODddfQ==
+eyJoaXN0b3J5IjpbOTg3NDEwMzMyLDkxMDcwNDk4N119
 -->
