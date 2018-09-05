@@ -21,9 +21,9 @@ She patted my hand.  "It's safer than driving."
 
 I laughed.  "I don't like driving."
 
-She paled a little at my sarcasm.  I knew logic
+She paled a little at my sarcasm.  I knew logically I'd be fine.  But my childhood trauma had only made this worse.  My fear of heights was only enhanced by sitting by the window.  My heart pounded in my chest.  It took forever for the plane to load and the airline attendants.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgzNDc3Nzk4MiwtMTE3NTgxNTI5MiwtOD
-IyNDYxMjI0LDY4MTk5NjUwMSwtODE2MzY5NDEwLDQ3ODkxMzQy
-NSwxMDQxMzE3MTI2LDEwMzU2MjAyNzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbNzY1NDgxOTY2LC0xMTc1ODE1MjkyLC04Mj
+I0NjEyMjQsNjgxOTk2NTAxLC04MTYzNjk0MTAsNDc4OTEzNDI1
+LDEwNDEzMTcxMjYsMTAzNTYyMDI3OSwxOTE4OTQ0MzMyXX0=
 -->
