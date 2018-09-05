@@ -47,7 +47,16 @@ I looked at him a little confused.  Benji nodded, "Your friend posted a picture 
 
 I nodded, "She is.  Best thing that happened to Mia was being a mother."
 
-"Alex is n
+"Alex is not himself right now.  He's going crazy over you and he's trying to forget you."
+
+"All the more reason for me to leave, Benji."  This time I did stand up.
+
+"Nox, come on.  You flew all this way out here.  You don't even want to tell him off yourself.  Don't be a dick like Alex.  You're here.  If it's over at least end it right."  He smirked, "But I think if the two of you get in the same room you'll work it out."
+
+"All we do is fight."
+
+Benji laughed, "That's all Alex every does is fight - or run 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc3MzczMDk2LC0xMzA4MjMxNTExXX0=
+eyJoaXN0b3J5IjpbLTE2NzQzNDA2NjksLTEzMDgyMzE1MTFdfQ
+==
 -->
