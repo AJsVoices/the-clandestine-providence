@@ -9,8 +9,10 @@ And I could have sworn that sitting three seats down was **my** pretty boy.  But
 
 When Abraham had figured out I was a telepath which was awkward he didn't freak out like he had with Benji.  He figured I was pissed cause I was beaten at my own game.  I let him think that.  Benji could never beat me though.
 
+So I left with the distinct feeling of a pair of brown eyes on my back.  And all I heard was Benji laughing so I didn't know if I'd heard him or not.  I swear it was Nox who I'd seen.
 
+Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near my place of stay so I was alright with that.  Turned out the man was pure huma
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMTU0MDc2ODksLTEwNTk2MjAxNDEsLT
-IwODg3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbMjQ1NzIzNTgxLC0xMDU5NjIwMTQxLC0yMD
+g4NzQ2NjEyXX0=
 -->
