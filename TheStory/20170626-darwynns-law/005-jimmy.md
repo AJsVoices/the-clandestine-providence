@@ -46,6 +46,12 @@ I was about to ask who the fuck he was, but he spoke before I even got the first
 "He obviously has moved on."  I said looking Benji up and down.  He was perfectly dressed in his own tailored suit, his hair was perfect, he was a pretty boy.  Alex didn't need me.   A hand on my elbow pulled me from my seat and I was following after Benji.  
 
 "Come on.  Let me take you someplace we can talk."
+
+I stopped, dug in my heels and stopped our forward momentum and Benji yanked at my elbow until he realized I wasn't moving.  "I don't know you." I said angrily.
+
+"I know you, Nox fucking Sétanta aught to be your full name."
+
+I smirked as I heard Alex saying that to Benji.  Benji chuckled, "Fuck
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDczODc4Njc3XX0=
+eyJoaXN0b3J5IjpbMTY3MzczNjg1OV19
 -->
