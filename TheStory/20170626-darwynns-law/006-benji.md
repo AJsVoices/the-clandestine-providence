@@ -15,8 +15,11 @@ He gave me a slow cautious nod before he added.  "Only recently.  Well I never g
 
 "Another reason I should just go."  I said but I didn't get up.
 
-Benji chuckled.  "Alex and I met after his mother died.  We working the same crowd ran into each other in the stupides
+Benji chuckled.  "Alex and I met after his mother died.  We working the same crowd ran into each other in the stupidest ways - telepathically listening to each other and holding a conversation we didn't mean to have from across the room."
+
+"Alex doesn't do anything by accident."  I said.
+
+"That's true, but I like I said, we met each other by accident.  Working the 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNDc3MjgwNTUsLTEzMDgyMzE1MTFdfQ
-==
+eyJoaXN0b3J5IjpbLTg0NzAyMzUyNywtMTMwODIzMTUxMV19
 -->
