@@ -13,9 +13,17 @@ I pulled the window shade down, buckled up and pressed my back into the back of 
 
 I should nap, but I knew that wasn't going to happen.  My heart felt like it was pounding out of my chest as the gray haired woman and a young child sat down next to me.  The kid couldn't be more than three and I was going to go crazy if the kid whined the whole time.  Fuck!
 
+The woman looked at me, "You okay honey?"
 
+I nodded, "I don't like flying."
+
+She patted my hand.  "It's safer than driving."
+
+I laughed.  "I don't like driving."
+
+She paled a little at my sarcasm.  I knew logic
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNzU4MTUyOTIsLTgyMjQ2MTIyNCw2OD
-E5OTY1MDEsLTgxNjM2OTQxMCw0Nzg5MTM0MjUsMTA0MTMxNzEy
-NiwxMDM1NjIwMjc5LDE5MTg5NDQzMzJdfQ==
+eyJoaXN0b3J5IjpbMTgzNDc3Nzk4MiwtMTE3NTgxNTI5MiwtOD
+IyNDYxMjI0LDY4MTk5NjUwMSwtODE2MzY5NDEwLDQ3ODkxMzQy
+NSwxMDQxMzE3MTI2LDEwMzU2MjAyNzksMTkxODk0NDMzMl19
 -->
