@@ -9,7 +9,9 @@ One of the male attendants was making sure no one left anything on the plane or 
 
 I looked at his name plate, "Allejandro."  I smiled, "Thanks, but I think if he throws me out I'll be leaving tonight."
 
-Allenjandro laughed, "Offer still stands."  He gave me the once over and I gave him a parting smile as I headed out the door.  I could feel the other man's eyes on my back and knew 
+Allenjandro laughed, "Offer still stands."  He gave me the once over and I gave him a parting smile as I headed out the door.  I could feel the other man's eyes on my back and knew I could hear him whispering to the other flight attendant, "My he's yummy."
+
+They giggled and I pretended I hadn't heard them as I headed out of the terminal.  The heat was dry and I felt warm in my hoodie, but I didn't take it off even after I'd stepped outside into the evening sun.  It was a five hour flight, but my phone told me it was only
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUyOTAwMTMzOF19
+eyJoaXN0b3J5IjpbLTEwOTI4NzQ2N119
 -->
