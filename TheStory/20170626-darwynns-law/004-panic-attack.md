@@ -27,10 +27,10 @@ The child next to me yammered on.  I was grateful his grandmother was sitting be
 
 We started moving faster and tilting up and I squished my eyes clothes as I tried to keep my breathing even.  The kid next to me screamed as his ears built up pressure and he didn't know how to react.  My body tensed and I had a death grip on the arm rests.  The woman next to me didn't know what to do, between me and the screaming child.
 
-The child eventually stopped as his ears equalized and I relaxed when the ding that signaled we could use our electronics was sounded.  I q
+The child eventually stopped as his ears equalized and I relaxed when the ding that signaled we could use our electronics was sounded.  I quickly pulled my earbuds out of my pocket and plugged it in and set the music to as loud as it would go.  I didn't care what I listened to as long as I could drown in it and feel nothing else.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc3NTQyNjkyNyw3NjU0ODE5NjYsLTExNz
-U4MTUyOTIsLTgyMjQ2MTIyNCw2ODE5OTY1MDEsLTgxNjM2OTQx
-MCw0Nzg5MTM0MjUsMTA0MTMxNzEyNiwxMDM1NjIwMjc5LDE5MT
-g5NDQzMzJdfQ==
+eyJoaXN0b3J5IjpbODM1NjA3NjEzLDc2NTQ4MTk2NiwtMTE3NT
+gxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtODE2MzY5NDEw
+LDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAyNzksMTkxOD
+k0NDMzMl19
 -->
