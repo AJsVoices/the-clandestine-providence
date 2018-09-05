@@ -13,8 +13,8 @@ So I left with the distinct feeling of a pair of brown eyes on my back.  And all
 
 Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near my place of stay so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
 
-
+The man looked sleezy, with his hair slicked back and his
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwOD
-g3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbLTY5ODIwNzY3MCwtNzMwMjIzOCwtMTA1OT
+YyMDE0MSwtMjA4ODc0NjYxMl19
 -->
