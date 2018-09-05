@@ -29,10 +29,14 @@ We started moving faster and tilting up and I squished my eyes clothes as I trie
 
 The child eventually stopped as his ears equalized and I relaxed when the ding that signaled we could use our electronics was sounded.  I quickly pulled my earbuds out of my pocket and plugged it in and set the music to as loud as it would go.  I didn't care what I listened to as long as I could drown in it and feel nothing else.  
 
-I listened to something loud and heavy.  It was not a usual playlist - more like one I played when I needed to focus on something other than my life.  Or the moment.  It was the music I listened to.  Sage would have been proud.
+I listened to something loud and heavy.  It was not a usual playlist - more like one I played when I needed to focus on something other than my life.  Or the moment.  It was the music I listened to.  Sage would have been proud.  Only dancing you could do on this playlist was in a mosh pit.
+
+The lady  next to me tapped my hand and I turned to look at her pulling out an ear bud.  "Can you turn that down?"
+
+"No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into a drea
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc5OTg1MjQyNiw4MzU2MDc2MTMsNzY1ND
-gxOTY2LC0xMTc1ODE1MjkyLC04MjI0NjEyMjQsNjgxOTk2NTAx
-LC04MTYzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYsMTAzNT
-YyMDI3OSwxOTE4OTQ0MzMyXX0=
+eyJoaXN0b3J5IjpbNTkyMzkyOTExLDE3OTk4NTI0MjYsODM1Nj
+A3NjEzLDc2NTQ4MTk2NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0
+LDY4MTk5NjUwMSwtODE2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMz
+E3MTI2LDEwMzU2MjAyNzksMTkxODk0NDMzMl19
 -->
