@@ -23,7 +23,7 @@ A cab to the hotel was easy to come by.  I felt out of place in this City, thoug
 
 I could wait in the lobby for Alex.  I could ask at the front desk.  I could go up and wait outside his room.  But instead I went into the bar.  It was busy for the time of day.  But this was Vegas and there were a lot of vacationers here too, a lot like New York.  Two men were at the bar, both about six foot, one had the tips of his hair dyed blond and the other was a bleach blonde.  I sat down three seats from them and tried not to listen to their conversation.  
 
-"Abraham doesn't want you dead.  Not yet anyway.  They need to know what you found out.  So what did you overhear Toto?"  I recognized that v
+"So what did you overhear Toto?"  I recognized that voice and looked just in time to see the blonde's hand raking down the cheek of the blonde tips.  Obviously not his name, a nickname.  Alex liked nicknames.   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTg3NDEwMzMyLDkxMDcwNDk4N119
+eyJoaXN0b3J5IjpbLTIxMDQzMzk0MDUsOTEwNzA0OTg3XX0=
 -->
