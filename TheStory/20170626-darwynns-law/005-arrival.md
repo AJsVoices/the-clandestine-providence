@@ -25,7 +25,11 @@ I could wait in the lobby for Alex.  I could ask at the front desk.  I could go 
 
 "So what did you overhear Toto?"  I recognized that voice and looked just in time to see the blonde's hand raking down the cheek of the blonde tips.  Obviously not his name, a nickname.  Alex liked nicknames.    Alex, the blond who'd spoken earlier looked at his watch and sighed, "I have to meet Abraham now.  I'll see you later."  He winked and headed for the door without even glancing in my direction.  
 
-I wondered if Alex heard my thoughts, fuck I wondered if he even noticed me at all sitting here stari
+I wondered if Alex heard my thoughts, fuck I wondered if he even noticed me at all sitting here staring at him and his fucking blonde hair.  I watched him him leave dressed in a suit and tie that looked very expensive.  I shouldn't have come here.
+
+"Sure you should have."  Tips said sitting down next to me.  "He's in denial, if he didn't hear you it's because he's trying so hard to forget you."
+
+"What?"  I said turning to look at him.  Tip waved his hand and an Irish 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk2OTc2NjU3Myw5MTA3MDQ5ODddfQ==
+eyJoaXN0b3J5IjpbLTY2NzUyMzI1OCw5MTA3MDQ5ODddfQ==
 -->
