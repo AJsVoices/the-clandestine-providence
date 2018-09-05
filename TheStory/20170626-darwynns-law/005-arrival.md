@@ -15,7 +15,9 @@ They giggled and I pretended I hadn't heard them as I headed out of the terminal
 
 N: I've landed.  Hotel and room?
 
-Sage tex
+Sage texted me back immediately with the Belagio hotel and a room number.  He also texted me a name it was under - James Hutton.
+
+I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM1MjEyODE2M119
+eyJoaXN0b3J5IjpbOTEwNzA0OTg3XX0=
 -->
