@@ -19,7 +19,15 @@ Benji chuckled.  "Alex and I met after his mother died.  We working the same cro
 
 "Alex doesn't do anything by accident."  I said.
 
-"That's true, but I like I said, we met each other by accident.  Working the 
+"That's true, but I like I said, we met each other by accident.  Working the same crowd in my game and we decided to team up."
+
+"And you've never slept with him?" I asked.
+
+Benji smirked, "He'd probably have liked that if I liked boys."
+
+I licked my lips and tried not to say anything.  "I can read your thoughts you might as well say it."
+
+I shrugged, "Why do I have to say it if you can read my thoughts."  And I thought 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg0NzAyMzUyNywtMTMwODIzMTUxMV19
+eyJoaXN0b3J5IjpbMTQ4NjI5NjY0LC0xMzA4MjMxNTExXX0=
 -->
