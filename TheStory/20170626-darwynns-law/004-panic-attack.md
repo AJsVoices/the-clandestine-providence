@@ -34,10 +34,16 @@ I listened to something loud and heavy.  It was not a usual playlist - more like
 The lady  next to me tapped my hand and I turned to look at her pulling out an ear bud.  "Can you turn that down?"
 
 "No."  I said then stuck it back in my ear, pulled my hood up over my head and pretended I didn't exist in this world.  And I didn't.  I drifted into my subconscious reliving all the memories of Alex.  It wasn't sleep I sought, it was the comfort of my blue-eyed boy who had gotten me through my suicidal days.  The fear was raging through my blood again.  I found him in the memories.  Found him where I was in a corner floating on nepenthe - the only drug that actually worked on my depression for short periods of time but it was highly illegal and selling it to me being half human carried a steep penalty.  It drove full grown human's mad.
+
+Alex knelt in front of me and frowned, "You are always like this around my birthday.  You should be happy, it was the month I was born."
+
+It elicited a smile from my lips but I confessed, "I didn't know if you were coming."
+
+Alex shrugged and pressed a kiss to 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MjgyMzc3MDcsMTQ3OTc4MDAzNCwxMj
-c1MjAxNzcxLDE3OTk4NTI0MjYsODM1NjA3NjEzLDc2NTQ4MTk2
-NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtOD
-E2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAy
-NzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbNzIyNjE1MTMzLDE0Nzk3ODAwMzQsMTI3NT
+IwMTc3MSwxNzk5ODUyNDI2LDgzNTYwNzYxMyw3NjU0ODE5NjYs
+LTExNzU4MTUyOTIsLTgyMjQ2MTIyNCw2ODE5OTY1MDEsLTgxNj
+M2OTQxMCw0Nzg5MTM0MjUsMTA0MTMxNzEyNiwxMDM1NjIwMjc5
+LDE5MTg5NDQzMzJdfQ==
 -->
