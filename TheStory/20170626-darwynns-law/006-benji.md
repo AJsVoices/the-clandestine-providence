@@ -33,7 +33,21 @@ I shrugged, "Why do I have to say it if you can read my thoughts."  And I let my
 
 "Tell him that."  I growled.
 
-"I have, actually.  He refuses to read your texts.  I will admit that is one danm
+"I have, actually.  He refuses to read your texts.  I will admit that is one damn cute kid you got there."
+
+"Not mine yet, but soon."  I said.  
+
+"And the little girl?"
+
+I looked at him a little confused.  Benji nodded, "Your friend posted a picture on Instagram with you and her daughter."
+
+"That would be Mia.  And my sweetheart Naya."
+
+"She's cute too."  Benji said.
+
+I nodded, "She is.  Best thing that happened to Mia was being a mother."
+
+"Alex is n
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE4Mjk5NTMxMSwtMTMwODIzMTUxMV19
+eyJoaXN0b3J5IjpbLTc3MzczMDk2LC0xMzA4MjMxNTExXX0=
 -->
