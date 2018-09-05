@@ -55,8 +55,10 @@ I nodded, "She is.  Best thing that happened to Mia was being a mother."
 
 "All we do is fight."
 
-Benji laughed, "That's all Alex every does is fight - or run 
+Benji laughed, "That's all Alex every does is fight - or run away.  Looks like he's doing both now at the same time now."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NzQzNDA2NjksLTEzMDgyMzE1MTFdfQ
+eyJoaXN0b3J5IjpbLTEzMjgwMjA2NzIsLTEzMDgyMzE1MTFdfQ
 ==
 -->
