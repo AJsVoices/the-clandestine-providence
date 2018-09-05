@@ -19,7 +19,9 @@ Sage texted me back immediately with the Bellagio hotel and a room number.  He a
 
 I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  I didn't believe Janice was a friend.  And I didn't think Alex floated in her circles, but I could be wrong.  So totally and utterly wrong, but I knew Alex.  Even when I didn't know know him, I knew him.  I'd been in love with a dream since I was 13.  He was the one who gave me the courage to kiss Dylan.  He was the one, he'd always been that.  But he'd been a dream.  And one I didn't remember.
 
-A cab to the hotel was easy to come by.  I felt out of place in this City, though I looked no different than any of th
+A cab to the hotel was easy to come by.  I felt out of place in this City, though I looked no different than any of the others, but it was still that strange feeling like I didn't belong.
+
+I could wait in the lobby for Alex.  I could ask at the front desk.  I could go up and wait outside his room.  But instead I went into the bar.  It was busy for the time of day.  But this was Vegas and there were a lot of vacationers her
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE0NjI2MTMwNSw5MTA3MDQ5ODddfQ==
+eyJoaXN0b3J5IjpbNDIxODYzOTgyLDkxMDcwNDk4N119
 -->
