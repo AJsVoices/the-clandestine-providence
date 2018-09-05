@@ -17,7 +17,9 @@ N: I've landed.  Hotel and room?
 
 Sage texted me back immediately with the Bellagio hotel and a room number.  He also texted me a name it was under - James Hutton.
 
-I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  I didn't believe Janice was a friend.  And I didn't think Alex floated in her circles, but I could be wrong.  So totally and utterly wrong, but I knew Alex.  Even when I didn't know know him, I knew him.  I'd been in love with a dream since I was 
+I wondered how many alias' Alex had.  And I wondered what sort of business he actually did.  Not that it mattered really, but aliases implied illegal activity.  Last thing Alex needed was me meddling in some plot of his.  I didn't believe Janice was a friend.  And I didn't think Alex floated in her circles, but I could be wrong.  So totally and utterly wrong, but I knew Alex.  Even when I didn't know know him, I knew him.  I'd been in love with a dream since I was 13.  He was the one who gave me the courage to kiss Dylan.  He was the one, he'd always been that.  But he'd been a dream.  And one I didn't remember.
+
+A cab to the hotel was easy to come by.  I felt out of place in this City, though I looked no different than any of th
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAzOTE1ODMwMCw5MTA3MDQ5ODddfQ==
+eyJoaXN0b3J5IjpbMTE0NjI2MTMwNSw5MTA3MDQ5ODddfQ==
 -->
