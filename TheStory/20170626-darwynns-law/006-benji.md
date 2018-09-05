@@ -65,7 +65,7 @@ Benji laughed, "That's all Alex every does is fight - or run away.  Looks like h
 
 "No."  Benji stood up and got in my face.  "You will not go anywhere.  I can make you stay."
 
-I sighed, "That's exactly how this fight started, Alex nudging me into doing something that I knew I shouldn't do to keep my sanity."  I stepped away from him.  "You touch me and you'll find yourself on the floor in a heart beat."
+I sighed, "That's exactly how this fight started, Alex nudging me into doing something that I knew I shouldn't do to keep my sanity."  I stepped away from him.  "You touch me and you'll find yourself on the floor in a heartbeat."
 
 Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 
@@ -76,6 +76,6 @@ Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 I nodded.  "Alright.  Plan your usual.  I decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4Njg1MDM4OTQsLTEzMjgwMjA2NzIsLT
-EzMDgyMzE1MTFdfQ==
+eyJoaXN0b3J5IjpbLTI3MTc1Nzc1MCwtMTMyODAyMDY3MiwtMT
+MwODIzMTUxMV19
 -->
