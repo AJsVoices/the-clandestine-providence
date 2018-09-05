@@ -41,11 +41,13 @@ It elicited a smile from my lips but I confessed, "I didn't know if you were com
 
 Alex shrugged and pressed a kiss to my lips.  My fingers snaked around his neck and into his hair. He grabbed my hands and pinned them to the wall above my head with a smile.  "I don't trust you like this not to hurt me.  No touching."
 
-"I'd never hurt you."  I said in the dream and in the memory I agreed with him out loud.  
+"I'd never hurt you."  I said in the dream and in the memory I agreed with him out loud.  I would never hurt Alex, not on purpose and I tried hard as hell never to do it on accident.  But I knew I would do that.  Not mean to hurt him, physically or emotionally, it was bound to happen.
+
+Alex just chuckled as he pinned my hands above my head and we shifted to a bed in the blink of an eye.  Alex was above me kissing, biting and sucking at my neck leaving a 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2ODI4NTUzNjksMTQ3OTc4MDAzNCwxMj
-c1MjAxNzcxLDE3OTk4NTI0MjYsODM1NjA3NjEzLDc2NTQ4MTk2
-NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtOD
-E2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAy
-NzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbMTkwMzI1NjA4MywxNDc5NzgwMDM0LDEyNz
+UyMDE3NzEsMTc5OTg1MjQyNiw4MzU2MDc2MTMsNzY1NDgxOTY2
+LC0xMTc1ODE1MjkyLC04MjI0NjEyMjQsNjgxOTk2NTAxLC04MT
+YzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYsMTAzNTYyMDI3
+OSwxOTE4OTQ0MzMyXX0=
 -->
