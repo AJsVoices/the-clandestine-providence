@@ -45,11 +45,11 @@ Alex shrugged and pressed a kiss to my lips.  My fingers snaked around his neck 
 
 Alex just chuckled as he pinned my hands above my head and we shifted to a bed in the blink of an eye.  Alex was above me kissing, biting and sucking at my neck leaving a large purple mark on my neck.  I felt the pull of emotion of the dream.  Felt his lips on me.  I wanted nothing more than to give Alex everything he wanted, and even my young self gave him what he wanted.  Alex bitched about my submission but he loved it as long as it never got in the way of what he wanted.
 
-I sighed and opened my eyes.  I shifted unconfortably
+I sighed and opened my eyes.  I shifted uncomfortably and the woman next to me just glared at me.  Her eyes glanced down to my pants and I knew fully well why, but I didn't care as she stared at my tightening jeans.  He couldn't leave the seat either.  She shook he head and mumbled, "Pervert!" And I couldn't help but chuckle.  Alex would have provoked me further if he'd known.  And I would have tried to remain quiet.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NTY2ODgyMTcsMTQ3OTc4MDAzNCwxMj
-c1MjAxNzcxLDE3OTk4NTI0MjYsODM1NjA3NjEzLDc2NTQ4MTk2
-NiwtMTE3NTgxNTI5MiwtODIyNDYxMjI0LDY4MTk5NjUwMSwtOD
-E2MzY5NDEwLDQ3ODkxMzQyNSwxMDQxMzE3MTI2LDEwMzU2MjAy
-NzksMTkxODk0NDMzMl19
+eyJoaXN0b3J5IjpbLTQzNzIwNjQ1NCwxNDc5NzgwMDM0LDEyNz
+UyMDE3NzEsMTc5OTg1MjQyNiw4MzU2MDc2MTMsNzY1NDgxOTY2
+LC0xMTc1ODE1MjkyLC04MjI0NjEyMjQsNjgxOTk2NTAxLC04MT
+YzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYsMTAzNTYyMDI3
+OSwxOTE4OTQ0MzMyXX0=
 -->
