@@ -5,8 +5,12 @@ Abraham gave me the funds and I was to play nice with Benji.  So that made us ge
 
 Meanwhile Benji still hadn't told me what he overheard.  We were in the hotel bar, Benji had been going on about Nox and the missed messages, which had gotten a lot more frequent over the past few days.  Like he was bored or something.  I still hadn't read them.
 
-And I could have sworn that sitting three seats down was **my** pretty boy.  But I had places to be - another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he
+And I could have sworn that sitting three seats down was **my** pretty boy.  But I had places to be - another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he was playing.
+
+When Abraham had figured out I was a telepath which was awkward he didn't freak out like he had with Benji.  He figured I was pissed cause I was beaten at my own game.  I let him think that.  Benji could never beat me though.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDI4MzU3OTYsLTEwNTk2MjAxNDEsLTIwOD
-g3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbLTExMTU0MDc2ODksLTEwNTk2MjAxNDEsLT
+IwODg3NDY2MTJdfQ==
 -->
