@@ -3,8 +3,10 @@ We fell into a rhythm over the next couple of days.  I slept until noon, Benji a
 
 Abraham gave me the funds and I was to play nice with Benji.  So that made us getting together all that much easier all part of the game.
 
-Meanwhile Benji still hadn't told me what he overheard.  We were in the hotel bar, Benji had been going 
+Meanwhile Benji still hadn't told me what he overheard.  We were in the hotel bar, Benji had been going on about Nox and the missed messages, which had gotten a lot more frequent over the past few days.  Like he was bored or something.  I still hadn't read them.
+
+And I could have sworn that sitting three seats down was **my** pretty boy.  But I had places to be - another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg1OTE1Njc2MSwtMTA1OTYyMDE0MSwtMj
-A4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbNDI4MzU3OTYsLTEwNTk2MjAxNDEsLTIwOD
+g3NDY2MTJdfQ==
 -->
