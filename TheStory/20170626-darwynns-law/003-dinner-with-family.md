@@ -79,7 +79,7 @@ Laker smiled at his crush and blushed a little, "It's going to sound crazy if I 
 
 I grinned at him. "The guy I liked just up and left without saying anything. Not even to fuck off. I thought we were going to work through it."  I sighed.  "But all we do is fight, so I don't know.  Maybe I should just leave it."
 
-Laker punched me, "No. You won't.  You will make him tell you to it's over Nox.  He can't leave you hanging like that.  Not only is it rude he should know better."
+Laker punched me, "No. You won't. You will make him tell you to it's over Nox.  He can't leave you hanging like that.  Not only is it rude he should know better."
 
 "Yeah he should know better.  Like he should know my anxiety isn't personal.  But that doesn't change anything."  I growled at him.
 
@@ -97,7 +97,7 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAwNTU4NDg2NSw5NDI0MTM0LC00NzA1Nz
-g4MDcsLTE4MzEyNDY5MzAsLTEyNjkzOTQyNTgsMTU4MDk2NDYy
-MiwtNTc2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbLTEyNDg5NDI0MDEsOTQyNDEzNCwtNDcwNT
+c4ODA3LC0xODMxMjQ2OTMwLC0xMjY5Mzk0MjU4LDE1ODA5NjQ2
+MjIsLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMDk4MzI3N119
 -->
