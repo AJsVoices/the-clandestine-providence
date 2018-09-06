@@ -37,8 +37,12 @@ Benji sat up straighter and looked at me.  "Working a con together?  For the sam
 
 "I don't know anyone I'd trust more!"  I said emphatically.  He was the only person I truly trusted anymore.  I didn't even trust my pretty boy this much.
 
-We sat in silence while we watched the movie and about an hour in Benji asked, "Did you ditch your phone?  I expected your lover boy to 
+We sat in silence while we watched the movie and about an hour in Benji asked, "Did you ditch your phone?  I expected your lover boy to keep pinging you.  It'd gotten worse the last few days."
+
+I shrugged.  "It's on the nightstand where it always is."  I said and looked over and then realized it wasn't there.  I had a momentary panic attack until I remembered I'd left it on the bed.  I nodded in the direction of the bed, "It's under the comforter I guess.  You covered it up."
+
+Benji flipped it back
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMjA0NTA0NDIsLTIwNjA1MDk4OTldfQ
+eyJoaXN0b3J5IjpbLTE4OTI1Nzg5OTgsLTIwNjA1MDk4OTldfQ
 ==
 -->
