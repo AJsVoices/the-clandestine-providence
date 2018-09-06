@@ -19,7 +19,7 @@ He sighed.  "No, I'll do it.  I'll call you when I have a location."
 
 I pulled myself up off my bed and paced.  Ophelia meowed at me, "What?"
 
-She threw her tail up and then curled up and ignored me.  "Yeah yeah yeah.  I know I'm a mess. You'd be a mess too."  I could see her tail twitch and then she put her head down on her paws and ignored me more.  Stupid cat.  Though I said it lovingly.  I reached down and rubbed her head and then left her alone.  She'd scratch me just the same.
+She threw her tail up and then curled up and ignored me.  "Yeah yeah yeah.  I know I'm a mess. You'd be a mess too."  I could see her tail twitch and then she put her head down on her paws and ignored me more.  "Stupid cat."  Though I said it lovingly.  I reached down and rubbed her head and then left her alone.  She'd scratch me just the same.
 
 It was mid morning which  meant I'd been up for 6 hours already.  My brothers were playing video games and I sat I flopped down in their laps and then grunted but didn't say anything more as they raced around whatever track they were playing.  I glanced at the screen and saw no race cars, they were playing some shoot em up game.  Each on their own TV screen.  I wasn't sure where I got a second one, but there was no telling what Dorian and/or Kai bought my brothers.
 
@@ -78,7 +78,7 @@ Laker shook his head, "He'd never hurt me."
 "There are always ways for that boys."  I grabbed Laker's controller.  "Go invite him for lunch at Marco's."  
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMDc1NzYzMzQsLTIzOTcxMTExNiwxOD
-UwNzM5OTY1LC03MzM2MzM0MDcsMjAxNjIyMjQxNywtMzQ3Mzcx
-ODA5XX0=
+eyJoaXN0b3J5IjpbMTk4MTU2MTk3MCwtMjM5NzExMTE2LDE4NT
+A3Mzk5NjUsLTczMzYzMzQwNywyMDE2MjIyNDE3LC0zNDczNzE4
+MDldfQ==
 -->
