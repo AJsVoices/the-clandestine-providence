@@ -39,7 +39,7 @@ Benji shook his head, "Why is everything a game, Alex?  You loved him growing up
 
 "It doesn't matter.  It's over."
 
-Benji took my keys from my pants pocket and he stole my wallet and only left me with James' things.  "You burn any of this and I'm going to have it all recreated.  Until you talk to him, I'm keeping everything that was Alex Kennedy.  I'll fucking be him if I have to, but you will not ruin your life because some of this guys friends know who you are.  They haven't burnt you yet.  I haven't burnt you.  You have to trust someone, some time."
+Benji took my keys from my pants pocket and he took my wallet and only left me with James' things.  "You burn any of this and I'm going to have it all recreated.  Until you talk to him, I'm keeping everything that was Alex Kennedy.  I'll fucking be him if I have to, but you will not ruin your life because some of this guys friends know who you are.  They haven't burnt you yet.  I haven't burnt you.  You have to trust someone, some time."
 
 "Fuck you!"  I growled as I dropped the pillow over my head.  "Get out."  I said.
 
@@ -57,6 +57,6 @@ ZCI6ImFNampvQklJVTZqc2oxWFMiLCJzdWIiOiJnaDo0MjYwOD
 U3MiIsInRleHQiOiJ0aGlzIGRvZXNuJ3QgbWFrZSBzZW5zZT8g
 TWF5YmUgJ0knZCBvbmx5IGV2ZXIgYWRtaXQgdGhpcyB0byB5b3
 UsJyIsImNyZWF0ZWQiOjE1MzYyMjkyMjA2ODZ9fSwiaGlzdG9y
-eSI6Wy03NjE5MjQyMDAsLTIwMTkyNzU4MDEsLTY2MDI4MTE0Mi
-wtMTYxOTA0ODYyOCwtOTI4MDY1MjUxXX0=
+eSI6Wy0xOTk5MzE5MTEyLC0yMDE5Mjc1ODAxLC02NjAyODExND
+IsLTE2MTkwNDg2MjgsLTkyODA2NTI1MV19
 -->
