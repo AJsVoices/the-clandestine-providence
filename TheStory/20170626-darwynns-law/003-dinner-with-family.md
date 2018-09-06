@@ -67,9 +67,9 @@ When I got back to the table Rider and Laker were watching me carefully. "He's d
 
 I blinked at him. "Uh. No. He's in Vegas."
 
-Both of my brothers mouthed "oh" but didn't say anything. Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine he was calliing Dorian too.  Or my father.  I can't imagine that he'd do it all by himself.  
+Both of my brothers mouthed "oh" but didn't say anything. Rider being the bolder of the two took my phone and started flipping through things. "You are going to Vegas right?" He looked at me as he started planning. "I'll book the flight and get you going. You enjoy dinner." He said as he took my phone and went down the hall.  I imagine he was calling Dorian too. Or my father. I can't imagine that he'd do it all by himself.  
 
-Why was it that I let my brother do that for me.  I could have managed, I told myself.  Laker grabbed my hand and squeezed, "Rider will take care of it Nox, relax.  We got this, don't stress over it.  You can go yell at him in a few hours."
+Why was it that I let my brother do that for me. I could have managed, I told myself. Laker grabbed my hand and squeezed "Rider will take care of it Nox, relax. We got this, don't stress over it. You can go yell at him in a few hours."
 
 Kyle asked, "What's going on?"
 
@@ -77,9 +77,9 @@ Laker smiled at his crush and blushed a little, "It's going to sound crazy if I 
 
 "Like you guys aren't already crazy."  
 
-I grinned at him.  "The guy I liked just up and left without saying anything.  Not even to fuck off.  I thought we were going to work through it."  I sighed.  "But all we do is fight, so I don't know.  Maybe I should just leave it."
+I grinned at him. "The guy I liked just up and left without saying anything. Not even to fuck off. I thought we were going to work through it."  I sighed.  "But all we do is fight, so I don't know.  Maybe I should just leave it."
 
-Laker punched me, "No.  You won't.  You will make him tell you to it's over Nox.  He can't leave you hanging like that.  Not only is it rude he should know better."
+Laker punched me, "No. You won't.  You will make him tell you to it's over Nox.  He can't leave you hanging like that.  Not only is it rude he should know better."
 
 "Yeah he should know better.  Like he should know my anxiety isn't personal.  But that doesn't change anything."  I growled at him.
 
@@ -97,7 +97,7 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTQyNDEzNCw0MzI4MDA1NTgsLTQ3MDU3OD
-gwNywtMTgzMTI0NjkzMCwtMTI2OTM5NDI1OCwxNTgwOTY0NjIy
-LC01NzYxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbMjAwNTU4NDg2NSw5NDI0MTM0LC00NzA1Nz
+g4MDcsLTE4MzEyNDY5MzAsLTEyNjkzOTQyNTgsMTU4MDk2NDYy
+MiwtNTc2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
