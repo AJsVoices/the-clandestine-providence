@@ -5,7 +5,7 @@ Joe was nice enough to take my number said he'd text me if he saw Alex.  But I h
 
 It rang four times then went to voice mail and I hung up and dialed again.  On the third ring Sage answered, "This better be important."
 
-"It is to me,"  I said, there was a hitch in my voice and I heard Sage sit up.  "What's wrong, Nox?"
+"It is to me"  I said, there was a hitch in my voice and I heard Sage sit up.  "What's wrong, Nox?"
 
 "I need you to track Alex's number."
 
@@ -78,7 +78,7 @@ Laker shook his head, "He'd never hurt me."
 "There are always ways for that boys."  I grabbed Laker's controller.  "Go invite him for lunch at Marco's."  
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk4MTU2MTk3MCwtMjM5NzExMTE2LDE4NT
-A3Mzk5NjUsLTczMzYzMzQwNywyMDE2MjIyNDE3LC0zNDczNzE4
-MDldfQ==
+eyJoaXN0b3J5IjpbLTE1NTY0MDM0NDIsMTk4MTU2MTk3MCwtMj
+M5NzExMTE2LDE4NTA3Mzk5NjUsLTczMzYzMzQwNywyMDE2MjIy
+NDE3LC0zNDczNzE4MDldfQ==
 -->
