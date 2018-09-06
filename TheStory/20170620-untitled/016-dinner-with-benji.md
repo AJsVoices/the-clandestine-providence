@@ -33,7 +33,12 @@ Benji turned and stared at me, "Uh.  Yeah."
 
 "Abraham has been all on edge thinking you'd steal the book from under him."  I smirked, "But I'm going to steal it from him.  I need your help.  Want to pretend to be my employer?"  I asked.
 
-Benji sat up straighter and looked at me.  "Working a con together?  For the same purpose? " 
+Benji sat up straighter and looked at me.  "Working a con together?  For the same purpose?"  Benji laughed, "You sure you can trust me?"
+
+"I don't know anyone I'd trust more!"  I said emphatically.  He was the only person I truly trusted anymore.  I didn't even trust my pretty boy this much.
+
+We sat in silence while we watched the movie and about an hour in Benji asked, "Did you ditch your phone?  I expected your lover boy to 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMwNzg4NTQ3NywtMjA2MDUwOTg5OV19
+eyJoaXN0b3J5IjpbLTEwMjA0NTA0NDIsLTIwNjA1MDk4OTldfQ
+==
 -->
