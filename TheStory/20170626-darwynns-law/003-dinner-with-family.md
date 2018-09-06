@@ -51,23 +51,23 @@ Sage sighed. "He's in Vegas."
 
 "I do work for him, and his ping came back the same ping as that phone location."
 
-"You stalk him?"  I asked.
+"You stalk him?" I asked.
 
-"I keep tabs on him.  He knows I do."
+"I keep tabs on him. He knows I do."
 
-"You keep tabs on everyone you work for.  It's part of what you do and why you do it." 
+"You keep tabs on everyone you work for. It's part of what you do and why you do it." 
 
 Sage sighed, "So yeah, he's in Vegas.  I'll get you room and location if you want specifics."
 
-"I want specifics Sage."  I said then hung up.  My head was reeling.  He left.  Without saying good-bye.  What the fuck!  I thought things had been decided we'd try.  We'd make something work.  I guessed I was wrong.  Fuck!
+"I want specifics Sage," I said then hung up.  My head was reeling.  He left.  Without saying good-bye.  What the fuck!  I thought things had been decided we'd try.  We'd make something work.  I guessed I was wrong.  Fuck!
 
-I stepped inside the dim restaurante and I was greeted with a gust of cold air that sent shivers down my spine.  Alex had left.  He'd been ignoring me.  Was Ant right?
+I stepped inside the dim restaurant and I was greeted with a gust of cold air that sent shivers down my spine. Alex had left.  He'd been ignoring me. Was Ant right?
 
-When I got back to the table Rider and Laker were watching me carefully.  "He's dead?"  Rider asked.
+When I got back to the table Rider and Laker were watching me carefully. "He's dead?"  Rider asked.
 
-I blinked at him.  "Uh.  No.  He's in Vegas."
+I blinked at him. "Uh. No. He's in Vegas."
 
-Both of my brothers mouthed "oh".  But didn't say anything.  Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine he was calliing Dorian too.  Or my father.  I can't imagine that he'd do it all by himself.  
+Both of my brothers mouthed "oh" but didn't say anything. Rider being the bolder of the two took my phone and started flipping through things.  "You are going to Vegas right?"  He looked at me as he started planning.  "I'll book the flight and get you going.  You enjoy dinner."  He said as he took my phone and went down the hall.  I imagine he was calliing Dorian too.  Or my father.  I can't imagine that he'd do it all by himself.  
 
 Why was it that I let my brother do that for me.  I could have managed, I told myself.  Laker grabbed my hand and squeezed, "Rider will take care of it Nox, relax.  We got this, don't stress over it.  You can go yell at him in a few hours."
 
@@ -97,7 +97,7 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4OTExMTQ4NjUsLTQ3MDU3ODgwNywtMT
-gzMTI0NjkzMCwtMTI2OTM5NDI1OCwxNTgwOTY0NjIyLC01NzYx
-NzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbNDMyODAwNTU4LC00NzA1Nzg4MDcsLTE4Mz
+EyNDY5MzAsLTEyNjkzOTQyNTgsMTU4MDk2NDYyMiwtNTc2MTcz
+NjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 -->
