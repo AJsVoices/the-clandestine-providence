@@ -29,7 +29,9 @@ Deacon shrugged as I sat down.  "It's just a book I stole from some club.  It wa
 
 "I don't have it with me."  Which I knew.  He wasn't lying about having it.  And Abraham hadn't actually told me what it was supposed to look like. I just wanted to see where he kept it.  Can't steal it otherwise.  That wasn't my job.  But this was the guy that Anthony Giovanni was after.  I'd seen him trailing the guy when I was doing my recon.  The vampire was hiding in plain sight as a tourist.  He'd been playing poker rather badly when I saw the vampire prince.  I don't know why he didn't send someone else to do his work.  He was a fucking prince like Abraham and that vampire didn't do anything himself.
 
-Though I'd not see the other guy with him in a few 
+Though I'd not see the other guy with him in a few days - since that first night actually.  I wondered who Brandon Holt was and why he was in town.  But it didn't matter.  I wasn't getting anymore involved in vampire business than I already was.  But this book had to go for a good price.  
+
+
 
 
 <!--stackedit_data:
@@ -45,8 +47,8 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-MTI3NDUzNjc0Myw3NTUyNzIxNjIsMTIwNzUwOTA3MSw5MzQ2OT
-Q3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUzMiw2OTc3MjM4MzQs
-LTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2NzAsLTczMD
-IyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ==
+LTEyOTM3MzczOTQsNzU1MjcyMTYyLDEyMDc1MDkwNzEsOTM0Nj
+k0NzI2LC0xNDcxMTQyMTU0LC05OTgwMDI1MzIsNjk3NzIzODM0
+LC0xODAxODk2NDc3LDYwNjQ5OTU3OCwtNjk4MjA3NjcwLC03Mz
+AyMjM4LC0xMDU5NjIwMTQxLC0yMDg4NzQ2NjEyXX0=
 -->
