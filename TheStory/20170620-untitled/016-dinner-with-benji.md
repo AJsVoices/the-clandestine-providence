@@ -5,7 +5,14 @@ But short of the one picture that I'd seen when they arrived there had been no m
 
 The knock at the door signaled that food had arrived and right behind it was Benji.  He grinned at me like he knew something I didn't but he was as tight as a ship.  I wondered how much it would take to sink that ship and he'd spill whatever tidbit of knowledge he had.
 
-Benji asked, "So how'd it go?"  The lit in his voice was so much more than what I 
+Benji asked, "So how'd it go?"  The lit in his voice was so much more than what he was asking about only adding to my curiousity.
+
+"Fine."  I said, "I guess.  A meeting tomorrow for him to show me and my employer the goods."
+
+Benji laughed.  "So who you taking.  Which vampire prince is your boss?"
+
+I glared at him as Benji uncovered the trays of food to reveal a plethora of finger foods.  "There's a movie we can watch unless you have something better t
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjAxNTQ3MjcwOSwtMjA2MDUwOTg5OV19
+eyJoaXN0b3J5IjpbLTE4NTU2ODA1OTYsLTIwNjA1MDk4OTldfQ
+==
 -->
