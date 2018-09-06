@@ -15,7 +15,7 @@ He gave me a slow cautious nod before he added.  "Only recently.  Well I never g
 
 "Another reason I should just go."  I said but I didn't get up.
 
-Benji chuckled.  "Alex and I met after his mother died.  We working the same crowd ran into each other in the stupidest ways - telepathically listening to each other and holding a conversation we didn't mean to have from across the room."
+Benji chuckled.  "Alex and I met after his mother died.  We were working the same crowd and ran into each other in the stupidest ways - telepathically listening to each other and holding a conversation we didn't mean to have from across the room."
 
 "Alex doesn't do anything by accident."  I said.
 
@@ -76,6 +76,6 @@ Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 I nodded.  "Alright.  Plan your usual.  I'll decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1Nzk4ODgwMzUsLTI3MTc1Nzc1MCwtMT
-MyODAyMDY3MiwtMTMwODIzMTUxMV19
+eyJoaXN0b3J5IjpbLTM4MzQ1NjU1OSwtMjcxNzU3NzUwLC0xMz
+I4MDIwNjcyLC0xMzA4MjMxNTExXX0=
 -->
