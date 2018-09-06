@@ -79,9 +79,9 @@ Laker smiled at his crush and blushed a little, "It's going to sound crazy if I 
 
 I grinned at him. "The guy I liked just up and left without saying anything. Not even to fuck off. I thought we were going to work through it."  I sighed.  "But all we do is fight, so I don't know.  Maybe I should just leave it."
 
-Laker punched me, "No. You won't. You will make him tell you to it's over Nox.  He can't leave you hanging like that.  Not only is it rude he should know better."
+Laker punched me, "No. You won't. You will make him tell you to it's over Nox. He can't leave you hanging like that. Not only is it rude he should know better."
 
-"Yeah he should know better.  Like he should know my anxiety isn't personal.  But that doesn't change anything."  I growled at him.
+"Yeah he should know better. Like he should know my anxiety isn't personal. But that doesn't change anything."  I growled at him.
 
 "Nox.  Come on man, just go talk to him.  It'll do you good to know it's over if it's over."
 
@@ -97,7 +97,15 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNDg5NDI0MDEsOTQyNDEzNCwtNDcwNT
-c4ODA3LC0xODMxMjQ2OTMwLC0xMjY5Mzk0MjU4LDE1ODA5NjQ2
-MjIsLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMDk4MzI3N119
+eyJkaXNjdXNzaW9ucyI6eyJCSWw2azBYR0duaXpSalpLIjp7In
+RleHQiOiJoZSBzaG91bGQga25vdyBiZXR0ZXIiLCJzdGFydCI6
+NDQ0NiwiZW5kIjo0NDY3fX0sImNvbW1lbnRzIjp7IjViODM2bW
+gyQW5oaHIwMEoiOnsiZGlzY3Vzc2lvbklkIjoiQklsNmswWEdH
+bml6UmpaSyIsInN1YiI6ImdoOjQyNjA4NTcyIiwidGV4dCI6Im
+xvbGluZyBhdCB0aGlzIGJlY2F1c2UgQWxleCBkb2Vzbid0IGhh
+dmUgYSBjbHVlIGxvbCIsImNyZWF0ZWQiOjE1MzYyMzIzNDc1OD
+h9fSwiaGlzdG9yeSI6WzE5NDMxODU3MzIsOTQyNDEzNCwtNDcw
+NTc4ODA3LC0xODMxMjQ2OTMwLC0xMjY5Mzk0MjU4LDE1ODA5Nj
+Q2MjIsLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMDk4MzI3N119
+
 -->
