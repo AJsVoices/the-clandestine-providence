@@ -37,12 +37,18 @@ Benji sat up straighter and looked at me.  "Working a con together?  For the sam
 
 "I don't know anyone I'd trust more!"  I said emphatically.  He was the only person I truly trusted anymore.  I didn't even trust my pretty boy this much.
 
-We sat in silence while we watched the movie and about an hour in Benji asked, "Did you ditch your phone?  I expected your lover boy to keep pinging you.  It'd gotten worse the last few days."
+We sat in silence while we watched the movie.  Benji shifted to the bed after eating and was sprawled all over my bed.  About an hour in Benji asked, "Did you ditch your phone?  I expected your lover boy to keep pinging you.  It'd gotten worse the last few days."
 
 I shrugged.  "It's on the nightstand where it always is."  I said and looked over and then realized it wasn't there.  I had a momentary panic attack until I remembered I'd left it on the bed.  I nodded in the direction of the bed, "It's under the comforter I guess.  You covered it up."
 
-Benji flipped it back
+Benji flipped it back and grabbed the phone and took a look at it.  "You locked it."
+
+I smirked, "Now you can keep away from him so I can forget him."
+
+Benji sighed, "You really want to forget him, after all this time you think you can?"
+
+I sighed.  "That's my goal.  I should go find someone else to hook up with - prove it t
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4OTI1Nzg5OTgsLTIwNjA1MDk4OTldfQ
+eyJoaXN0b3J5IjpbLTIwODIzNzMyMzMsLTIwNjA1MDk4OTldfQ
 ==
 -->
