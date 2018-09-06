@@ -17,11 +17,12 @@ The man looked sleazy, with his hair slicked back and his leather jacket pulled 
 
 "I am.  Care for a drink?"
 
-I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."
+I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."  My employer sounded so wrong being that I wasn't being employed by him I was merely helping him out.  Though he did promise me a reward.  I think I was working for fucking vampires now.  But this was what I did.  I should charge him.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk5ODAwMjUzMiw2OTc3MjM4MzQsLTE4MD
-E4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2NzAsLTczMDIyMzgs
-LTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ==
+eyJoaXN0b3J5IjpbLTE0NzExNDIxNTQsLTk5ODAwMjUzMiw2OT
+c3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2
+NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ
+==
 -->
