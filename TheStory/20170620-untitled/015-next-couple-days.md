@@ -5,7 +5,7 @@ Abraham gave me the funds and I was to play nice with Benji.  So that made us ge
 
 Meanwhile Benji still hadn't told me what he overheard.  We were in the hotel bar, Benji had been going on about Nox and the missed messages, which had gotten a lot more frequent over the past few days.  Like he was bored or something.  I still hadn't read them.
 
-And I could have sworn that sitting three seats down was **my** pretty boy.  But that was impossible, he was in New York City a couple of hours ago having lunch with his brothers. Not that I was stalking their instagram or anything. I needed a distraction and luckily I had places to be -  another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he was playing.
+And I could have sworn that sitting three hdown was **my** pretty boy.  But that was impossible, he was in New York City a couple of hours ago having lunch with his brothers. Not that I was stalking their instagram or anything. I needed a distraction and luckily I had places to be -  another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he was playing.
 
 When Abraham had figured out I was a telepath which was awkward he didn't freak out like he had with Benji.  He figured I was pissed cause I was beaten at my own game.  I let him think that.  Benji could never beat me though.
 
@@ -38,12 +38,12 @@ I sat there for a few more minutes after he'd left wondering if I should tell An
 
 <!--stackedit_data:
 eyJkaXNjdXNzaW9ucyI6eyJQUXZFS2RHUWd1c1hZc1pmIjp7In
-RleHQiOiJib3kiLCJzdGFydCI6OTQ5LCJlbmQiOjk1Mn0sIjVw
-WXNqTDdTWEtnc2JNaTMiOnsic3RhcnQiOjE2NTUsImVuZCI6MT
-gzOCwidGV4dCI6IlNvIEkgbGVmdCB3aXRoIHRoZSBkaXN0aW5j
+RleHQiOiJib3kiLCJzdGFydCI6OTQ0LCJlbmQiOjk0N30sIjVw
+WXNqTDdTWEtnc2JNaTMiOnsic3RhcnQiOjE2NTAsImVuZCI6MT
+gzMywidGV4dCI6IlNvIEkgbGVmdCB3aXRoIHRoZSBkaXN0aW5j
 dCBmZWVsaW5nIG9mIGEgcGFpciBvZiBicm93biBleWVzIG9uIG
 15IGJhY2suICBBbmQgYWzigKYifSwiV3BaOWlwUXFCZk1yQWU4
-eCI6eyJzdGFydCI6MjcyOCwiZW5kIjoyNzQ2LCJ0ZXh0IjoiZW
+eCI6eyJzdGFydCI6MjcyMywiZW5kIjoyNzQxLCJ0ZXh0IjoiZW
 FkIGhpbiBnIGZvciBhIGUuIn19LCJjb21tZW50cyI6eyIxb0dR
 Mkl4amxBak5pM1NSIjp7ImRpc2N1c3Npb25JZCI6IlBRdkVLZE
 dRZ3VzWFlzWmYiLCJzdWIiOiJnaDo0MjYwODU3MiIsInRleHQi
@@ -65,10 +65,10 @@ aXQiLCJjcmVhdGVkIjoxNTM2MjM0NzY5Nzg1fSwiQUw5eUIyNm
 41aDBzclRmdCI6eyJkaXNjdXNzaW9uSWQiOiJXcFo5aXBRcUJm
 TXJBZTh4Iiwic3ViIjoiZ2g6NDI2MDg1NzIiLCJ0ZXh0IjoiPz
 8/IiwiY3JlYXRlZCI6MTUzNjIzNDg1NDMxNX19LCJoaXN0b3J5
-IjpbNTc1OTY3MTU3LDY4MzUyNjE4OSwyMTM0NTY0NzMzLC0yMD
-QwMTk5MjY3LC0xMjkzNzM3Mzk0LDc1NTI3MjE2MiwxMjA3NTA5
-MDcxLDkzNDY5NDcyNiwtMTQ3MTE0MjE1NCwtOTk4MDAyNTMyLD
-Y5NzcyMzgzNCwtMTgwMTg5NjQ3Nyw2MDY0OTk1NzgsLTY5ODIw
-NzY3MCwtNzMwMjIzOCwtMTA1OTYyMDE0MSwtMjA4ODc0NjYxMl
-19
+IjpbMTkzNjQ2MzMxOCw2ODM1MjYxODksMjEzNDU2NDczMywtMj
+A0MDE5OTI2NywtMTI5MzczNzM5NCw3NTUyNzIxNjIsMTIwNzUw
+OTA3MSw5MzQ2OTQ3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUzMi
+w2OTc3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OTgy
+MDc2NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2MT
+JdfQ==
 -->
