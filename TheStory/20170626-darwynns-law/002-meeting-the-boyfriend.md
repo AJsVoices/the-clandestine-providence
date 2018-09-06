@@ -45,7 +45,7 @@ I nodded.  "This goes for you too, but my bed side table always has condoms."
 
 Rider laughed, "I know and lube and toys and..."  He smirked, "I took a few the other night when we went out."
 
-"I'd prefer it if you bring your your girls back to the house and not some sleezy motel or something."  I told Rider.  
+"I'd prefer it if you bring your your girls back to the house and not some sleazy motel or something,"  I told Rider.  
 
 He didn't blush.  "I'll keep that in mind.  Though I think Laker might have issues with that."
 
@@ -65,5 +65,5 @@ I sighed.  "He's not talking to anyone these days."
 
 Rider wrapped his arm around me as the train came to a stop.  "I know man.  Sage will find him then you can go give him an ear full."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDA5NzM2MjczLDExNzMyNzcwNDNdfQ==
+eyJoaXN0b3J5IjpbLTEzNjA4OTM5MjksMTE3MzI3NzA0M119
 -->
