@@ -55,13 +55,13 @@ I nodded, "She is.  Best thing that happened to Mia was being a mother."
 
 "All we do is fight."
 
-Benji laughed, "That's all Alex every does is fight - or run away.  Looks like he's doing both now at the same time now."  He looked at me and frowned.  "Why did you come here?"
+Benji laughed, "That's all Alex ever does; fight - or run away.  Looks like he's doing both now at the same time now."  He looked at me and frowned.  "Why did you come here?"
 
 "I was worried about him.  He wasn't replying to anything.  He wasn't at his apartment - either of them.  He wasn't even telling me to leave him the fuck alone so I was being oblivious to the fact that he wasn't answering, and I was busy so I didn't have time to notice."
 
 "We have dinner tonight.  Me and him in his room.  Let me take you there, you can shower, change and then you and he can sit down and talk."
 
-"I have nothing to change into this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't want me."
+"I have nothing to change into, this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't want me."
 
 "No."  Benji stood up and got in my face.  "You will not go anywhere.  I can make you stay."
 
@@ -76,6 +76,6 @@ Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 I nodded.  "Alright.  Plan your usual.  I'll decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM4MzQ1NjU1OSwtMjcxNzU3NzUwLC0xMz
-I4MDIwNjcyLC0xMzA4MjMxNTExXX0=
+eyJoaXN0b3J5IjpbNjE0ODM4MjMxLC0yNzE3NTc3NTAsLTEzMj
+gwMjA2NzIsLTEzMDgyMzE1MTFdfQ==
 -->
