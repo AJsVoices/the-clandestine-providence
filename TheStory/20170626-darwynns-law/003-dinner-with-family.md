@@ -13,7 +13,7 @@ Kyle shook his head.  "No, don't think so.  You all are allergic to shell fish?"
 
 Rider shrugged, "We eat a lot of chicken while we are here in New York.  I think the only time we get pasta is when we come here."
 
-"That has to get boring," Kyle said as the waitress came by and set down a basket of bread with garlic flavored oil with other herbs and an antipasto dish that I loved.  
+"That has to get boring" Kyle said as the waitress came by and set down a basket of bread with garlic flavored oil with other herbs and an antipasto dish that I loved.  
 
 She smiled at me, "The chef asks if there are any new allergies."
 
@@ -37,7 +37,7 @@ I gave him a wry smile and shrugged.  "Sorry."  I was dialing Sage's number as I
 
 "You got a location?"  I asked Sage when he picked up.
 
-"I do,"  he said.  "He wasn't hard to find.  But you aren't going to like it."
+"I do"  e said.  "He wasn't hard to find.  But you aren't going to like it."
 
 "Where is he?" I asked, "As long as he's not dead I think I can deal with it."
 
@@ -97,7 +97,7 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDMyODAwNTU4LC00NzA1Nzg4MDcsLTE4Mz
-EyNDY5MzAsLTEyNjkzOTQyNTgsMTU4MDk2NDYyMiwtNTc2MTcz
-NjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
+eyJoaXN0b3J5IjpbOTQyNDEzNCw0MzI4MDA1NTgsLTQ3MDU3OD
+gwNywtMTgzMTI0NjkzMCwtMTI2OTM5NDI1OCwxNTgwOTY0NjIy
+LC01NzYxNzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
 -->
