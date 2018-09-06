@@ -27,7 +27,7 @@ Benji sighed and grabbed my phone from me and when I grabbed for it he held out 
 
 "It's over Benj."  I flopped down on my bed.  "He knows I'm a con man.  His fucking friends know.  What kind of relationship is that going to be?"
 
-Benji laughed, "The same kind we have?  Alex, he's fucking Venatori, his life isn't exactly legal or normal either.  And Alex, I'd only admit this you you but he's fucking hot.  Most of the guys you go after they don't look like him."
+Benji laughed, "The same kind we have?  Alex, he's fucking Venatori, his life isn't exactly legal or normal either.  And Alex, I'd only admit this to you but he's fucking hot.  Most of the guys you go after they don't look like him."
 
 "I don't go after guys I like Benj.  It's all a game."
 
@@ -60,7 +60,7 @@ UsJyIsImNyZWF0ZWQiOjE1MzYyMjkyMjA2ODZ9LCJKSWlCSkRM
 QWFGODdmUGUyIjp7ImRpc2N1c3Npb25JZCI6ImFNampvQklJVT
 Zqc2oxWFMiLCJzdWIiOiJnaDoxMTgxOTIzIiwidGV4dCI6Imdv
 b2QgZGVhbC4uLiBhbGwgZml4ZWQgdXAiLCJjcmVhdGVkIjoxNT
-M2MjI5NjUzMjgzfX0sImhpc3RvcnkiOlstMTI3NDEzMzA4OCwt
-MTk5OTMxOTExMiwtMjAxOTI3NTgwMSwtNjYwMjgxMTQyLC0xNj
-E5MDQ4NjI4LC05MjgwNjUyNTFdfQ==
+M2MjI5NjUzMjgzfX0sImhpc3RvcnkiOlstMTYyMzg5MzM0LC0x
+Mjc0MTMzMDg4LC0xOTk5MzE5MTEyLC0yMDE5Mjc1ODAxLC02Nj
+AyODExNDIsLTE2MTkwNDg2MjgsLTkyODA2NTI1MV19
 -->
