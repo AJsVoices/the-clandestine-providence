@@ -11,8 +11,13 @@ Benji asked, "So how'd it go?"  The lit in his voice was so much more than what 
 
 Benji laughed.  "So who you taking.  Which vampire prince is your boss?"
 
-I glared at him as Benji uncovered the trays of food to reveal a plethora of finger foods.  "There's a movie we can watch unless you have something better t
+I glared at him as Benji uncovered the trays of food to reveal a plethora of finger foods.  "There's a movie we can watch unless you have something better to do."
+
+I shrugged and grabbed some wings and fries and headed for the table to sit down.  Benji followed me dragging the stool by the bed over to sit on.  "There is a perfectly good chair here."
+
+"I know, this is more comfortable."  He said as he sat down with his own food and grabbed the remote and found his way to some new movie I hadn't seen yet.  
+
+The credit's starte
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NTU2ODA1OTYsLTIwNjA1MDk4OTldfQ
-==
+eyJoaXN0b3J5IjpbMTcwNjQ0NzQ4MSwtMjA2MDUwOTg5OV19
 -->
