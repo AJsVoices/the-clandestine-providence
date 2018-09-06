@@ -5,7 +5,7 @@ Abraham gave me the funds and I was to play nice with Benji.  So that made us ge
 
 Meanwhile Benji still hadn't told me what he overheard.  We were in the hotel bar, Benji had been going on about Nox and the missed messages, which had gotten a lot more frequent over the past few days.  Like he was bored or something.  I still hadn't read them.
 
-And I could have sworn that sitting three seats down was **my** pretty boy.  But I had places to be - another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he was playing.
+And I could have sworn that sitting three seats down was **my** pretty boy.  But that was impossible, he was in New York City a couple of hours ago having dinner with his brothers. Not that I was stalking their instagram or anything. I needed a distraction and luckily I had places to be -  another meeting but not with Abraham this time - with some guy named Deacon.  Abraham wanted me to suss out who he was and if he was for real.  Apparently he stole something and Abraham wanted to know if it was real or not.  Or just some game he was playing.
 
 When Abraham had figured out I was a telepath which was awkward he didn't freak out like he had with Benji.  He figured I was pissed cause I was beaten at my own game.  I let him think that.  Benji could never beat me though.
 
@@ -49,9 +49,9 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-LTE5NjQwNDQ1NjQsLTEyOTM3MzczOTQsNzU1MjcyMTYyLDEyMD
-c1MDkwNzEsOTM0Njk0NzI2LC0xNDcxMTQyMTU0LC05OTgwMDI1
-MzIsNjk3NzIzODM0LC0xODAxODk2NDc3LDYwNjQ5OTU3OCwtNj
-k4MjA3NjcwLC03MzAyMjM4LC0xMDU5NjIwMTQxLC0yMDg4NzQ2
-NjEyXX0=
+MTQyNDEzODQ3NywtMTI5MzczNzM5NCw3NTUyNzIxNjIsMTIwNz
+UwOTA3MSw5MzQ2OTQ3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUz
+Miw2OTc3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OT
+gyMDc2NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2
+MTJdfQ==
 -->
