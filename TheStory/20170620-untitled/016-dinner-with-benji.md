@@ -55,7 +55,13 @@ The credits started rolling and Benji grabbed my wrist and looked at the time.  
 
 I shook my head, "No, I'm tired of all the fucking smoke.  I just want to do something else."
 
-Benji nodded, "Suit your
+Benji nodded, "Suit yourself.  We'll plan in the morning?"
+
+I nodded, "Sounds great."
+
+Benji headed for the door and opened it.  I heard Benji jump.  "How long have you been there?"
+
+I stepped towards the door to see who was there, but Benji was blocking the view.  "Who's there Benji?"  I asked as I approached and once I got there I
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIwOTA5OTUyMSwtMjA2MDUwOTg5OV19
+eyJoaXN0b3J5IjpbMTAyMzAwODYyLC0yMDYwNTA5ODk5XX0=
 -->
