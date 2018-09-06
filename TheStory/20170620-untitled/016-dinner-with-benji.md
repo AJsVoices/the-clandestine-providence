@@ -27,7 +27,13 @@ Benji shook his head and looked back at me.  "Nothing."  But yet he was still lo
 
 Benji shook his head.  "I expect your vampire friends to show up any time.  They know I'm here right?"
 
-I nodded, "Yeah, but
+I nodded, "Yeah, but they will wait till this book deal is done.  That's what you overheard wasn't it?"
+
+Benji turned and stared at me, "Uh.  Yeah."
+
+"Abraham has been all on edge thinking you'd steal the book from under him."  I smirked, "But I'm going to steal it from him.  I need your help.  Want to pretend to be my employer?"  I asked.
+
+Benji sat up straighter and looked at me.  "Working a con together?  For the same purpose? " 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc4NjcwMzcyNywtMjA2MDUwOTg5OV19
+eyJoaXN0b3J5IjpbMTMwNzg4NTQ3NywtMjA2MDUwOTg5OV19
 -->
