@@ -31,7 +31,9 @@ Deacon shrugged as I sat down.  "It's just a book I stole from some club.  It wa
 
 Though I'd not see the other guy with him in a few days - since that first night actually.  I wondered who Brandon Holt was and why he was in town.  But it didn't matter.  I wasn't getting anymore involved in vampire business than I already was.  But this book had to go for a good price.  
 
-"I can bring it to you tomorrow.  You and your employer.  I don't do business with lackeys."  Deacon said.  "Tomorrow in
+"I can bring it to you tomorrow.  You and your employer.  I don't do business with lackeys."  Deacon said.  "Tomorrow in the Paris hotel lobby."  Then got up and left.
+
+I sat there for a few more minutes after he'd left wondering if I should tell Ant or Abraham - both or neither.  Fucking vampire business.
 
 
 <!--stackedit_data:
@@ -47,9 +49,9 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-MTEyODIxMjM3NiwtMTI5MzczNzM5NCw3NTUyNzIxNjIsMTIwNz
-UwOTA3MSw5MzQ2OTQ3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUz
-Miw2OTc3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OT
-gyMDc2NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2
-MTJdfQ==
+LTE5NjQwNDQ1NjQsLTEyOTM3MzczOTQsNzU1MjcyMTYyLDEyMD
+c1MDkwNzEsOTM0Njk0NzI2LC0xNDcxMTQyMTU0LC05OTgwMDI1
+MzIsNjk3NzIzODM0LC0xODAxODk2NDc3LDYwNjQ5OTU3OCwtNj
+k4MjA3NjcwLC03MzAyMjM4LC0xMDU5NjIwMTQxLC0yMDg4NzQ2
+NjEyXX0=
 -->
