@@ -11,7 +11,7 @@ When Abraham had figured out I was a telepath which was awkward he didn't freak 
 
 So I left with the distinct feeling of a pair of brown eyes on my back.  And all I heard was Benji laughing so I didn't know if I'd heard him or not.  I swear it was Nox who I'd seen.
 
-Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near where stay so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
+Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near where I was staying so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
 
 The man looked sleazy, with his hair slicked back and his leather jacket pulled up around his ears.  He looked like he was in some gangster movie.  I walked up to him and sat down across from him, "James Hutton.  And you are Deacon LeClaire?"
 
@@ -33,8 +33,8 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-LTU5NjE5NzQzLDkzNDY5NDcyNiwtMTQ3MTE0MjE1NCwtOTk4MD
-AyNTMyLDY5NzcyMzgzNCwtMTgwMTg5NjQ3Nyw2MDY0OTk1Nzgs
-LTY5ODIwNzY3MCwtNzMwMjIzOCwtMTA1OTYyMDE0MSwtMjA4OD
-c0NjYxMl19
+MTIwNzUwOTA3MSw5MzQ2OTQ3MjYsLTE0NzExNDIxNTQsLTk5OD
+AwMjUzMiw2OTc3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4
+LC02OTgyMDc2NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwOD
+g3NDY2MTJdfQ==
 -->
