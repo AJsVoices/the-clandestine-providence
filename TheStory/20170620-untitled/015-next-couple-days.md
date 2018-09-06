@@ -17,12 +17,16 @@ The man looked sleazy, with his hair slicked back and his leather jacket pulled 
 
 "I am.  Care for a drink?"
 
-I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."  My employer sounded so wrong being that I wasn't being employed by him I was merely helping him out.  Though he did promise me a reward.  I think I was working for fucking vampires now.  But this was what I did.  I should charge him.
+I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."  My employer sounded so wrong.  Working for a fucking vampire.
+
+I offered him my hand and he took it with trust completely unknown to him that was just the key I needed to make that connection.  To see inside his head behind any natural shielding.  If only it worked with Nox...
+
+Why was pretty boy in my head still.  Sure James was cocky and con
 
 
 <!--stackedit_data:
 eyJkaXNjdXNzaW9ucyI6eyJQUXZFS2RHUWd1c1hZc1pmIjp7In
-N0YXJ0Ijo5NDksImVuZCI6OTUyLCJ0ZXh0IjoiYm95In19LCJj
+RleHQiOiJib3kiLCJzdGFydCI6OTQ5LCJlbmQiOjk1Mn19LCJj
 b21tZW50cyI6eyIxb0dRMkl4amxBak5pM1NSIjp7ImRpc2N1c3
 Npb25JZCI6IlBRdkVLZEdRZ3VzWFlzWmYiLCJzdWIiOiJnaDo0
 MjYwODU3MiIsInRleHQiOiJIZSBzaG91bGQgZG91YnQgaGltc2
@@ -33,8 +37,8 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-MTIwNzUwOTA3MSw5MzQ2OTQ3MjYsLTE0NzExNDIxNTQsLTk5OD
-AwMjUzMiw2OTc3MjM4MzQsLTE4MDE4OTY0NzcsNjA2NDk5NTc4
-LC02OTgyMDc2NzAsLTczMDIyMzgsLTEwNTk2MjAxNDEsLTIwOD
-g3NDY2MTJdfQ==
+OTUxNzI5NjI2LDEyMDc1MDkwNzEsOTM0Njk0NzI2LC0xNDcxMT
+QyMTU0LC05OTgwMDI1MzIsNjk3NzIzODM0LC0xODAxODk2NDc3
+LDYwNjQ5OTU3OCwtNjk4MjA3NjcwLC03MzAyMjM4LC0xMDU5Nj
+IwMTQxLC0yMDg4NzQ2NjEyXX0=
 -->
