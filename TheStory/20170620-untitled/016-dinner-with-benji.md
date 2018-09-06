@@ -17,7 +17,17 @@ I shrugged and grabbed some wings and fries and headed for the table to sit down
 
 "I know, this is more comfortable."  He said as he sat down with his own food and grabbed the remote and found his way to some new movie I hadn't seen yet.  
 
-The credit's starte
+The movie started and Benji glanced at the door and frowned.  "What's wrong?"
+
+Benji shook his head and looked back at me.  "Nothing."  But yet he was still locking me out of his head.  "They why the silence?"
+
+"You need to hear my every thought?"  He asked with mock anger.
+
+"Yeah, maybe."  You are acting weird.
+
+Benji shook his head.  "I expect your vampire friends to show up any time.  They know I'm here right?"
+
+I nodded, "Yeah, but
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcwNjQ0NzQ4MSwtMjA2MDUwOTg5OV19
+eyJoaXN0b3J5IjpbMTc4NjcwMzcyNywtMjA2MDUwOTg5OV19
 -->
