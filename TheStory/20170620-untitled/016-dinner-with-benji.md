@@ -47,8 +47,15 @@ I smirked, "Now you can keep away from him so I can forget him."
 
 Benji sighed, "You really want to forget him, after all this time you think you can?"
 
-I sighed.  "That's my goal.  I should go find someone else to hook up with - prove it t
+I sighed.  "That's my goal.  I should go find someone else to hook up with - prove it to you."
+
+"But you won't."  Benji said quickly.  "Will you?"  He covered nicely.  I didn't know why he was acting so strange but I didn't ask him either.
+
+The credits started rolling and Benji grabbed my wrist and looked at the time.  "I should get home.  I got a game in about an hour.  You coming?"
+
+I shook my head, "No, I'm tired of all the fucking smoke.  I just want to do something else."
+
+Benji nodded, "Suit your
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwODIzNzMyMzMsLTIwNjA1MDk4OTldfQ
-==
+eyJoaXN0b3J5IjpbMTIwOTA5OTUyMSwtMjA2MDUwOTg5OV19
 -->
