@@ -81,19 +81,19 @@ I grinned at him. "The guy I liked just up and left without saying anything. Not
 
 Laker punched me, "No. You won't. You will make him tell you to it's over Nox. He can't leave you hanging like that. Not only is it rude he should know better."
 
-"Yeah he should know better. Like he should know my anxiety isn't personal. But that doesn't change anything."  I growled at him.
+"Yeah he should know better. Like he should know my anxiety isn't personal. But that doesn't change anything," I growled at him.
 
-"Nox.  Come on man, just go talk to him.  It'll do you good to know it's over if it's over."
+"Nox. Come on man, just go talk to him. It'll do you good to know it's over if it's over."
 
-I sighed.  "I'm not hungry anymore."
+I sighed. "I'm not hungry anymore."
 
-Rider came back and dropped my phone in my pocket.  "You don't have time to waste, Nox.  You've a flight in an hour."
+Rider came back and dropped my phone in my pocket. "You don't have time to waste, Nox. You've a flight in an hour."
 
 "What?"
 
-Rider smiled.  "Go or Sage's work will be for naught."
+Rider smiled. "Go or Sage's work will be for naught."
 
-I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.  "Tell them to put it on my tab."
+I sighed and my brother pulled the chair out from behind me. "Fine."  I sighed. "Tell them to put it on my tab."
 
 
 <!--stackedit_data:
@@ -104,8 +104,8 @@ gyQW5oaHIwMEoiOnsiZGlzY3Vzc2lvbklkIjoiQklsNmswWEdH
 bml6UmpaSyIsInN1YiI6ImdoOjQyNjA4NTcyIiwidGV4dCI6Im
 xvbGluZyBhdCB0aGlzIGJlY2F1c2UgQWxleCBkb2Vzbid0IGhh
 dmUgYSBjbHVlIGxvbCIsImNyZWF0ZWQiOjE1MzYyMzIzNDc1OD
-h9fSwiaGlzdG9yeSI6WzE5NDMxODU3MzIsOTQyNDEzNCwtNDcw
-NTc4ODA3LC0xODMxMjQ2OTMwLC0xMjY5Mzk0MjU4LDE1ODA5Nj
-Q2MjIsLTU3NjE3MzYwMCwxODg3NDE5OTg1LDkxMDk4MzI3N119
+h9fSwiaGlzdG9yeSI6WzM3MDExNzAwOCw5NDI0MTM0LC00NzA1
+Nzg4MDcsLTE4MzEyNDY5MzAsLTEyNjkzOTQyNTgsMTU4MDk2ND
+YyMiwtNTc2MTczNjAwLDE4ODc0MTk5ODUsOTEwOTgzMjc3XX0=
 
 -->
