@@ -29,7 +29,7 @@ Deacon shrugged as I sat down.  "It's just a book I stole from some club.  It wa
 
 "I don't have it with me."  Which I knew.  He wasn't lying about having it.  And Abraham hadn't actually told me what it was supposed to look like. I just wanted to see where he kept it.  Can't steal it otherwise.  That wasn't my job.  But this was the guy that Anthony Giovanni was after.  I'd seen him trailing the guy when I was doing my recon.  The vampire was hiding in plain sight as a tourist.  He'd been playing poker rather badly when I saw the vampire prince.  I don't know why he didn't send someone else to do his work.  He was a fucking prince like Abraham and that vampire didn't do anything himself.
 
-Though I'd not see the other guy with him in a few days - since that first night actually.  I wondered who Brandon Holt was and why he was in town.  But it didn't matter.  I wasn't getting anymore involved in vampire business than I already was.  But this book had to go for a good price.  
+Though I hadn't seen the other guy with him in a few days - since that first night actually.  I wondered who Brandon Holt was and why he was in town.  But it didn't matter.  I wasn't getting anymore involved in vampire business than I already was.  But this book had to go for a good price.  
 
 "I can bring it to you tomorrow.  You and your employer.  I don't do business with lackeys."  Deacon said.  "Tomorrow in the Paris hotel lobby."  Then got up and left.
 
@@ -65,9 +65,10 @@ aXQiLCJjcmVhdGVkIjoxNTM2MjM0NzY5Nzg1fSwiQUw5eUIyNm
 41aDBzclRmdCI6eyJkaXNjdXNzaW9uSWQiOiJXcFo5aXBRcUJm
 TXJBZTh4Iiwic3ViIjoiZ2g6NDI2MDg1NzIiLCJ0ZXh0IjoiPz
 8/IiwiY3JlYXRlZCI6MTUzNjIzNDg1NDMxNX19LCJoaXN0b3J5
-IjpbNjgzNTI2MTg5LDIxMzQ1NjQ3MzMsLTIwNDAxOTkyNjcsLT
-EyOTM3MzczOTQsNzU1MjcyMTYyLDEyMDc1MDkwNzEsOTM0Njk0
-NzI2LC0xNDcxMTQyMTU0LC05OTgwMDI1MzIsNjk3NzIzODM0LC
-0xODAxODk2NDc3LDYwNjQ5OTU3OCwtNjk4MjA3NjcwLC03MzAy
-MjM4LC0xMDU5NjIwMTQxLC0yMDg4NzQ2NjEyXX0=
+IjpbNTc1OTY3MTU3LDY4MzUyNjE4OSwyMTM0NTY0NzMzLC0yMD
+QwMTk5MjY3LC0xMjkzNzM3Mzk0LDc1NTI3MjE2MiwxMjA3NTA5
+MDcxLDkzNDY5NDcyNiwtMTQ3MTE0MjE1NCwtOTk4MDAyNTMyLD
+Y5NzcyMzgzNCwtMTgwMTg5NjQ3Nyw2MDY0OTk1NzgsLTY5ODIw
+NzY3MCwtNzMwMjIzOCwtMTA1OTYyMDE0MSwtMjA4ODc0NjYxMl
+19
 -->
