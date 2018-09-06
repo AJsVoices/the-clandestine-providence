@@ -11,7 +11,7 @@ When Abraham had figured out I was a telepath which was awkward he didn't freak 
 
 So I left with the distinct feeling of a pair of brown eyes on my back.  And all I heard was Benji laughing so I didn't know if I'd heard him or not.  I swear it was Nox who I'd seen.
 
-Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near my place of stay so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
+Deacon and I were meeting at another bar in another casino.  I didn't want a vampire grunt anywhere near where stay so I was alright with that.  Turned out the man was pure human - a thief but still human.  He had an uncanny ability to sneak around wherever he wanted.  My gut said he had some sort of path ability that I was certain my pretty boy could tell me about.  Fucking invisibility or something.  This fucking world was mind blowing.
 
 The man looked sleazy, with his hair slicked back and his leather jacket pulled up around his ears.  He looked like he was in some gangster movie.  I walked up to him and sat down across from him, "James Hutton.  And you are Deacon LeClaire?"
 
@@ -21,8 +21,20 @@ I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTM0Njk0NzI2LC0xNDcxMTQyMTU0LC05OT
-gwMDI1MzIsNjk3NzIzODM0LC0xODAxODk2NDc3LDYwNjQ5OTU3
-OCwtNjk4MjA3NjcwLC03MzAyMjM4LC0xMDU5NjIwMTQxLC0yMD
-g4NzQ2NjEyXX0=
+eyJkaXNjdXNzaW9ucyI6eyJQUXZFS2RHUWd1c1hZc1pmIjp7In
+N0YXJ0Ijo5NDksImVuZCI6OTUyLCJ0ZXh0IjoiYm95In19LCJj
+b21tZW50cyI6eyIxb0dRMkl4amxBak5pM1NSIjp7ImRpc2N1c3
+Npb25JZCI6IlBRdkVLZEdRZ3VzWFlzWmYiLCJzdWIiOiJnaDo0
+MjYwODU3MiIsInRleHQiOiJIZSBzaG91bGQgZG91YnQgaGltc2
+VsZiBvciBkaXNtaXNzIGl0PyAnQnV0IHRoYXQgd2FzIGltcG9z
+c2libGUsIGhlIHdhcyBpbiBOWUMgYSBjb3VwbGUgb2YgaG91cn
+MgYWdvIGhhdmluZyBkaW5uZXIgd2l0aCBoaXMgYnJvdGhlcnMu
+IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
+JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
+biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
+wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
+LTU5NjE5NzQzLDkzNDY5NDcyNiwtMTQ3MTE0MjE1NCwtOTk4MD
+AyNTMyLDY5NzcyMzgzNCwtMTgwMTg5NjQ3Nyw2MDY0OTk1Nzgs
+LTY5ODIwNzY3MCwtNzMwMjIzOCwtMTA1OTYyMDE0MSwtMjA4OD
+c0NjYxMl19
 -->
