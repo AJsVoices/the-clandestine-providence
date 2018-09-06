@@ -17,7 +17,7 @@ The man looked sleazy, with his hair slicked back and his leather jacket pulled 
 
 "I am.  Care for a drink?"
 
-I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."  My employer sounded so wrong.  Working for a fucking vampire.
+I shook my head.  "No.  Thank you.  I want to know what you have for sale.  And is it real, my employer sent me to check it out."  My employer sounded so wrong.   ead hin g for a e.
 
 I offered him my hand and he took it with trust completely unknown to him that was just the key I needed to make that connection.  To see inside his head behind any natural shielding.  If only it worked with Nox...
 
@@ -39,8 +39,8 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-MTQyNTM4OTUxNywxMjA3NTA5MDcxLDkzNDY5NDcyNiwtMTQ3MT
-E0MjE1NCwtOTk4MDAyNTMyLDY5NzcyMzgzNCwtMTgwMTg5NjQ3
-Nyw2MDY0OTk1NzgsLTY5ODIwNzY3MCwtNzMwMjIzOCwtMTA1OT
-YyMDE0MSwtMjA4ODc0NjYxMl19
+NzU1MjcyMTYyLDE0MjUzODk1MTcsMTIwNzUwOTA3MSw5MzQ2OT
+Q3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUzMiw2OTc3MjM4MzQs
+LTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2NzAsLTczMD
+IyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ==
 -->
