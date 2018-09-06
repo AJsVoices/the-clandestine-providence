@@ -23,7 +23,11 @@ I offered him my hand and he took it with trust completely unknown to him that w
 
 Why was pretty boy in my head still.  Sure James was cocky and confident but Nox was a mess too.  I sighed inwardly.  I was never going to get over this if he didn't get the fuck out of my head.
 
-Deacon shrugged as I sat down.  "It's just a book I stole from some club.  It was under lock and key in a safe so it has to be important right?  Don't know what the fuck it is, I can't read it.  It's written in some weird ass ink that looks like it moves.  I'
+Deacon shrugged as I sat down.  "It's just a book I stole from some club.  It was under lock and key in a safe so it has to be important right?  Don't know what the fuck it is, I can't read it.  It's written in some weird ass ink that looks like it moves.  I've only looked at it once."
+
+"Can I see it?"  I asked.
+
+"I don't have it with me."  Which I knew.  He wasn't lying about having it.  And Abraham hadn't actually told me what it was supposed to look like. I just wanted to see where he kept it.  Can't steal it otherwis
 
 
 <!--stackedit_data:
@@ -39,7 +43,7 @@ IE5vdCB0aGF0IEkgd2FzIHN0YWxraW5nIHRoZWlyIGluc3RhZ3
 JhbSBvciBhbnl0aGluZy4gSSBuZWVkZWQgYSBkaXN0cmFjdGlv
 biBhbmQgbHVja2lseSBJIGhhZCBwbGFjZXMgdG8gYmUuLi4nIi
 wiY3JlYXRlZCI6MTUzNjIzMDA3MDY5M319LCJoaXN0b3J5Ijpb
-NzU1MjcyMTYyLDE0MjUzODk1MTcsMTIwNzUwOTA3MSw5MzQ2OT
+LTUwNzg4OTE2Myw3NTUyNzIxNjIsMTIwNzUwOTA3MSw5MzQ2OT
 Q3MjYsLTE0NzExNDIxNTQsLTk5ODAwMjUzMiw2OTc3MjM4MzQs
 LTE4MDE4OTY0NzcsNjA2NDk5NTc4LC02OTgyMDc2NzAsLTczMD
 IyMzgsLTEwNTk2MjAxNDEsLTIwODg3NDY2MTJdfQ==
