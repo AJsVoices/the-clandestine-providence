@@ -13,7 +13,7 @@ Kyle shook his head.  "No, don't think so.  You all are allergic to shell fish?"
 
 Rider shrugged, "We eat a lot of chicken while we are here in New York.  I think the only time we get pasta is when we come here."
 
-"That has to get boring." Kyle said as the waitress came by and set down a basket of bread with garlic flavored oil with other herbs and an antipasto dish that I loved.  
+"That has to get boring," Kyle said as the waitress came by and set down a basket of bread with garlic flavored oil with other herbs and an antipasto dish that I loved.  
 
 She smiled at me, "The chef asks if there are any new allergies."
 
@@ -37,13 +37,13 @@ I gave him a wry smile and shrugged.  "Sorry."  I was dialing Sage's number as I
 
 "You got a location?"  I asked Sage when he picked up.
 
-"I do."  He said.  "He wasn't hard to find.  But you aren't going to like it."
+"I do,"  he said.  "He wasn't hard to find.  But you aren't going to like it."
 
 "Where is he?" I asked, "As long as he's not dead I think I can deal with it."
 
-Sage sighed.  "He's in Vegas."
+Sage sighed. "He's in Vegas."
 
-"What?"  I asked.
+"What?" I asked.
 
 "His phone is in Vegas.  His secondary phone is in Vegas."  
 
@@ -97,7 +97,7 @@ I sighed and my brother pulled the chair out from behind me.  "Fine."  I sighed.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3MDU3ODgwNywtMTgzMTI0NjkzMCwtMT
-I2OTM5NDI1OCwxNTgwOTY0NjIyLC01NzYxNzM2MDAsMTg4NzQx
-OTk4NSw5MTA5ODMyNzddfQ==
+eyJoaXN0b3J5IjpbLTE4OTExMTQ4NjUsLTQ3MDU3ODgwNywtMT
+gzMTI0NjkzMCwtMTI2OTM5NDI1OCwxNTgwOTY0NjIyLC01NzYx
+NzM2MDAsMTg4NzQxOTk4NSw5MTA5ODMyNzddfQ==
 -->
