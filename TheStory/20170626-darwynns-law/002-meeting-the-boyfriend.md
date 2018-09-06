@@ -3,17 +3,17 @@ Laker called his friend and until the boys decided one way or the other that's h
 
 Kyle met us down stairs as we left to go into Little Italy.  He was about as tall as my brother but he was thinner and wore glasses.  His red hair and freckles made me think of Ron Howard back in the day.  Laker was wearing a leather jacket and I couldn't help but laugh at the image in my head.  The Fonz and Richie, how fucking epic.  I snapped a picture and I'd show Sage later.  
 
-I introduced myself, "I'm Nox," I offered him my hand.  
+I introduced myself, "I'm Nox." I offered him my hand.  
 
 He flipped my hand to examine the black nail polish. "Why don't you match them?" Kyle nodded to my head.
 
 "I don't have the color nail polish so it's easier just to stick with black."
 
-"My mom won't let me do any of that."  He said.
+"My mom won't let me do any of that," he said.
 
 I asked, "Why?"
 
-"She doesn't want me to look like a girl."  Kyle groaned out.
+"She doesn't want me to look like a girl,"  Kyle groaned out.
 
 "I look like a girl?"  I grinned at him.
 
@@ -25,7 +25,7 @@ I asked, "Why?"
 
 I laughed.  "I don't think you mom would like talking to me.  I'm everything she doesn't want you to be."
 
-Kyle laughed too.  "Yeah, but you are put together, have a job, you make money to live in this place.  Put you in a suit and I guauntee my mom will listen to you even with the eye liner and nail polish and the dyed tips."
+Kyle laughed too.  "Yeah, but you are put together, have a job, you make money to live in this place.  Put you in a suit and I guarantee my mom will listen to you even with the eye liner and nail polish and the dyed tips."
 
 I shrugged, "Maybe, if you want me to.  You should see Dorian."
 
@@ -65,5 +65,5 @@ I sighed.  "He's not talking to anyone these days."
 
 Rider wrapped his arm around me as the train came to a stop.  "I know man.  Sage will find him then you can go give him an ear full."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE3MzI3NzA0M119
+eyJoaXN0b3J5IjpbNDA5NzM2MjczLDExNzMyNzcwNDNdfQ==
 -->
