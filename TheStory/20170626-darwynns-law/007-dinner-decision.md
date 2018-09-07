@@ -25,10 +25,9 @@ I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it y
 
 I stopped and worried if I was doing the right thing.  I even made it to the elevator a few times before I turned back.  
 
-Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw 
+Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw Alex in my head.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MDc2Mzk1MTMsLTEyNTY4MjI1NywxMD
-U3ODg4Njc1LC0xMjYzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2
-NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX
-0=
+eyJoaXN0b3J5IjpbOTU4MjU2NTAwLC0xMjU2ODIyNTcsMTA1Nz
+g4ODY3NSwtMTI2MzQ3NTEzLDg5MzM5NjE0MSwtMjAxMzg3Njcy
+Nyw5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3MV19
 -->
