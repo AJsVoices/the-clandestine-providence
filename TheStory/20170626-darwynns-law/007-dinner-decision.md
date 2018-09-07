@@ -3,7 +3,7 @@ I walked around the strip for a few hours.  I went inside Circus Circus and watc
 
 I was a fucking mess and I needed to go but I kept trying to make up my mind.  I'd sit and think and I'd be ready to leave.  I wanted to go home, leave Alex to his life like he wanted.  And then I'd close my eyes and I would drift into the dreams and then I'd see him again in my dreams and I'd need to see his blue eyes again for real.
 
-I was washing back and forth and even the walk through city wasn't helping.  It was nearly six and I made my way back to the Bellagio where Alex was staying as James Hutton.  Jimmy, Benji kept calling him.  I didn't want to interrupt Alex's dinner with his friend so I didn't go right up.  I stopped in the gift shop and saw some flowers.  I bought some flowers, they were a mix of wild flowers.  Nothing fancy but I thought they were nice enough anyway.  I'd never bought flowers for anyone before.  
+I was washing back and forth and even the walk through city wasn't helping.  It was nearly six and I made my way back to the Bellagio where Alex was staying as James Hutton.  Jimmy, Benji kept calling him.  I didn't want to interrupt Alex's dinner with his friend so I didn't go right up.  I stopped in the gift shop and saw some flowers.  I bought some flowers, they were a mix of wild flowers.  Nothing fancy but I thought they were nice enough anyway.  I'd never bought flowers  anyone before.  
 
 But it was a meal and Dorian would be upset if I didn't bring wine, so I asked in the bar.  The guy at the bar looked at me and frowned, "What can I do for you?"
 
@@ -19,7 +19,7 @@ When he returned he took both bills and smiled.  "Thanks. for your patronage."
 
 I nodded.  "You're welcome."
 
-I didn't wait for change, I knew I wasn't getting any back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the couple across the hall were going at it like rabbits.  And there was a baby crying down a few floors.  So I didn't keep my senses out long, just long enough to know they were in there.  
+I didn't wait for change, I knew I wasn't getting back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the couple across the hall were going at it like rabbits.  And there was a baby crying down a few floors.  So I didn't keep my senses out long, just long enough to know they were in there.  
 
 I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it yet.  The flowers weren't wilting yet, but I was making myself nervous.  I stopped in front of the door and I thought about knocking.  I stared at the door for several more minutes before I paced again.  
 
@@ -27,13 +27,13 @@ I stopped and worried if I was doing the right thing.  I even made it to the ele
 
 Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw Alex in my head.  It was a recent dream.  I couldn't see anything, just dark.  Me and Alex.  Just the two of us.
 
-I was lost in my thoughts when I heard the door open.  I stood up before the door was fully opened and Benji, with his Asian complexion and his frosted hair looked at me and asked, "How long have you been there?"
+I was lost in my thoughts when I heard the door open.  I stood up before the door was fully opened and Benji, with his sian complexion and his frosted hair looked at me and asked, "How long have you been there?"
 
-I didn't say anything as I saw Alex creeping this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
+I didn't say anything as I saw Alex eing this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
 
 Benji laughed breaking the silence.  "I was just leaving."  He said as he slipped between me and the wall and headed for the elevator.  
 
-The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and pushed the flowers and wine at Alex.  I stared at his chest, not the floor.  He didn't like when I went submissive but the silence and the staring made me uncomfortable.
+The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and pused the flowers and wine at Alex.  I stared at his chest, not the floor.  He didn't like when I went submissive but the silence and the staring made me uncomfortable.
 
 Alex asked, "What are you doing here?"  It wasn't a pleasant tone and I wanted to shriek away from it.  He was angry.
 
@@ -45,9 +45,9 @@ Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that an
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU0Mzg0MTA1LDI1NTcyMDgzNSwtNTIxMD
-cyNjMzLDE4MjY3MDAwNTEsMTM5MTY2MTEyMiwtMjExNjcxMDY2
-OCwtMTI1NjgyMjU3LDEwNTc4ODg2NzUsLTEyNjM0NzUxMyw4OT
-MzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5
-OTMsLTExNzc3NjEyNzFdfQ==
+eyJoaXN0b3J5IjpbLTM4NDU1MDM0NywxNTQzODQxMDUsMjU1Nz
+IwODM1LC01MjEwNzI2MzMsMTgyNjcwMDA1MSwxMzkxNjYxMTIy
+LC0yMTE2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4ODY3NSwtMT
+I2MzQ3NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5
+MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3MV19
 -->
