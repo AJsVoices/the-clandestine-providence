@@ -39,16 +39,16 @@ Alex asked, "What are you doing here?"  It wasn't a pleasant tone and I wanted t
 
 I started to stay something but my voice caught.  I took a deep breath and tried again.  "I was worried about you."  I lifted my eyes to meet his.  "You weren't answering my texts and you never even told me you were leaving."  As I spoke my voice turned to a growl.  My anger shown through.  "You didn't even have the decency to break up with me.  Just fucking left."
 
-Alex hadn't taken the offerings and I was in a wrong moment.  I squatted down and laid the offerings at his feet and I looked up remember that view.  It was the last time I was going to see it.  I stood up and I took a step back.  "I came here to see if you were all right.  You seem to be doing great, forgetting me with ease.  So I'm going to do the decent thing."  I squared my shoulders and I looked Alex straight in his blue eyes and I said, "I spent the last few days remembering everything you made me forget about us.  And now, I wish I hadn't found out.  You can go to hell, Al..."  His name was muffled by his lips as he pressed a hard and fast kiss against my lips.  He grabbed a fistful of my shirt and pulled me past the threshold of his room.  I kicked the flowers and wine bottle inside and Alex kicked the door shut.
+Alex hadn't taken the offerings and I was in a wrong moment.  I squatted down and laid the offerings at his feet and I looked up to remember that view.  It was the last time I was going to see it.  I stood up and I took a step back.  "I came here to see if you were all right.  You seem to be doing great, forgetting me with ease.  So I'm going to do the decent thing."  I squared my shoulders and I looked Alex straight in his blue eyes and I said, "I spent the last few days remembering everything you made me forget about us.  And now, I wish I hadn't found out.  You can go to hell, Al..."  His name was muffled by his lips as he pressed a hard and fast kiss against my lips.  He grabbed a fistful of my shirt and pulled me past the threshold of his room.  I kicked the flowers and wine bottle inside and Alex kicked the door shut.
 
 Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that anymore.  You fucking left."
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MjkzMTIzODMsLTM4NDU1MDM0NywxNT
-QzODQxMDUsMjU1NzIwODM1LC01MjEwNzI2MzMsMTgyNjcwMDA1
-MSwxMzkxNjYxMTIyLC0yMTE2NzEwNjY4LC0xMjU2ODIyNTcsMT
-A1Nzg4ODY3NSwtMTI2MzQ3NTEzLDg5MzM5NjE0MSwtMjAxMzg3
-NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3MV
-19
+eyJoaXN0b3J5IjpbNTcyNTMwMDk2LC0zODQ1NTAzNDcsMTU0Mz
+g0MTA1LDI1NTcyMDgzNSwtNTIxMDcyNjMzLDE4MjY3MDAwNTEs
+MTM5MTY2MTEyMiwtMjExNjcxMDY2OCwtMTI1NjgyMjU3LDEwNT
+c4ODg2NzUsLTEyNjM0NzUxMyw4OTMzOTYxNDEsLTIwMTM4NzY3
+MjcsOTI4ODA2OTIsLTExNTI2MjU5OTMsLTExNzc3NjEyNzFdfQ
+==
 -->
