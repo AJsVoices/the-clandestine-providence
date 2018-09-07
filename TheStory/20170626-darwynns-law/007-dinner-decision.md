@@ -5,7 +5,7 @@ I was a fucking mess and I needed to go but I kept trying to make up my mind.  I
 
 I was washing back and forth and even the walk through city wasn't helping.  It was nearly six and I made my way back to the Bellagio where Alex was staying as James Hutton.  Jimmy, Benji kept calling him.  I didn't want to interrupt Alex's dinner with his friend so I didn't go right up.  I stopped in the gift shop and saw some flowers.  I bought some flowers, they were a mix of wild flowers.  Nothing fancy but I thought they were nice enough anyway.  I'd never bought flowers for anyone before.  
 
-But it was food and Dorian would be upset if I didn't bring wine, so I asked in the bar.  The guy at the bar looked at me and frowned, "What can I do for you?"
+But it was a meal and Dorian would be upset if I didn't bring wine, so I asked in the bar.  The guy at the bar looked at me and frowned, "What can I do for you?"
 
 "I'd like your best red wine in a bottle."
 
@@ -19,7 +19,7 @@ When he returned he took both bills and smiled.  "Thanks. for your patronage."
 
 I nodded.  "You're welcome."
 
-I didn't wait for change, I knew I wasn't getting any change back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the couple across the hall were going at it like rabbits.  And there was a baby crying down a few floors.  So I didn't keep my senses out long, just long enough to know they were in there.  
+I didn't wait for change, I knew I wasn't getting any back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the couple across the hall were going at it like rabbits.  And there was a baby crying down a few floors.  So I didn't keep my senses out long, just long enough to know they were in there.  
 
 I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it yet.  The flowers weren't wilting yet, but I was making myself nervous.  I stopped in front of the door and I thought about knocking.  I stared at the door for several more minutes before I paced again.  
 
@@ -45,9 +45,9 @@ Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that an
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjU1NzIwODM1LC01MjEwNzI2MzMsMTgyNj
-cwMDA1MSwxMzkxNjYxMTIyLC0yMTE2NzEwNjY4LC0xMjU2ODIy
-NTcsMTA1Nzg4ODY3NSwtMTI2MzQ3NTEzLDg5MzM5NjE0MSwtMj
-AxMzg3NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2
-MTI3MV19
+eyJoaXN0b3J5IjpbMzUyOTMzMzQxLDI1NTcyMDgzNSwtNTIxMD
+cyNjMzLDE4MjY3MDAwNTEsMTM5MTY2MTEyMiwtMjExNjcxMDY2
+OCwtMTI1NjgyMjU3LDEwNTc4ODg2NzUsLTEyNjM0NzUxMyw4OT
+MzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5
+OTMsLTExNzc3NjEyNzFdfQ==
 -->
