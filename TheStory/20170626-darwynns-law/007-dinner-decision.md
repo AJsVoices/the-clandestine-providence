@@ -13,9 +13,15 @@ But it was food and Dorian would be upset if I didn't bring wine, so I asked in 
 
 I sighed and took out my wallet and dropped a couple hundred on the bar.  "Can I now?"
 
-He shook his head.  "Sorry man."  He didn't wait for me to say anything more as he headed to th
+He shook his head.  "Sorry man."  He didn't wait for me to say anything more as he headed to the back to grab a bottle for me.  
+
+When he returned he took both bills and smiled.  "Thanks. for your patronage."
+
+I nodded.  "You're welcome."
+
+I didn't wait for change, I knew I wasn't getting any.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc3NjczNjc4Miw4OTMzOTYxNDEsLTIwMT
+eyJoaXN0b3J5IjpbMTU4NjU1NjU1Nyw4OTMzOTYxNDEsLTIwMT
 M4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5OTMsLTExNzc3NjEy
 NzFdfQ==
 -->
