@@ -37,10 +37,10 @@ The elevator dinged and I heard them slide closed and Alex and I hadn't said a t
 
 Alex asked, "What are you doing here?"  It wasn't a pleasant tone and I wanted to shriek away from it.  He was angry.
 
-I started to stay something but my voice caught.  I t
+I started to stay something but my voice caught.  I took a deep breath and tried again.  "I was worried about you."  I lifted my eyes to meet his.  "You weren't answering my texts and you never even told me you were leaving."  As I spoke my voice turned to a growl.  My anger shown through.  "You didn't even have the decency to break up with me.  Just fucking left."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU1MDIyNTgyNiwxODI2NzAwMDUxLDEzOT
-E2NjExMjIsLTIxMTY3MTA2NjgsLTEyNTY4MjI1NywxMDU3ODg4
-Njc1LC0xMjYzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2NzI3LD
-kyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX0=
+eyJoaXN0b3J5IjpbLTE5MTQwNTE5NTksMTgyNjcwMDA1MSwxMz
+kxNjYxMTIyLC0yMTE2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4
+ODY3NSwtMTI2MzQ3NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNy
+w5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3MV19
 -->
