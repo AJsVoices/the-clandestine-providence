@@ -29,11 +29,11 @@ Close to the second hour outside of debating I sat down across from the hall and
 
 I was lost in my thoughts when I heard the door open.  I stood up before the door was fully opened and Benji, with his Asian complexion and his frosted hair looked at me and asked, "How long have you been there?"
 
-I didn't say anything as I saw Alex lumbering this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
+I didn't say anything as I saw Alex creeping this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
 
 Benji laughed breaking the silence.  "I was just leaving."  He said as he slipped between me and the wall and headed for the elevator.  
 
-The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and looked down at the floor pushing the flowers and wine at Alex as I did so.  I stared at his chest, not the floor.  He didn't like when I went submissive but the silence and the staring made me uncomfortable.
+The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and pushed the flowers and wine at Alex.  I stared at his chest, not the floor.  He didn't like when I went submissive but the silence and the staring made me uncomfortable.
 
 Alex asked, "What are you doing here?"  It wasn't a pleasant tone and I wanted to shriek away from it.  He was angry.
 
@@ -45,7 +45,7 @@ Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that an
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk4NTg1Nzg3NiwyNTU3MjA4MzUsLTUyMT
+eyJoaXN0b3J5IjpbMTk3NzkxNzAzNSwyNTU3MjA4MzUsLTUyMT
 A3MjYzMywxODI2NzAwMDUxLDEzOTE2NjExMjIsLTIxMTY3MTA2
 NjgsLTEyNTY4MjI1NywxMDU3ODg4Njc1LC0xMjYzNDc1MTMsOD
 kzMzk2MTQxLC0yMDEzODc2NzI3LDkyODgwNjkyLC0xMTUyNjI1
