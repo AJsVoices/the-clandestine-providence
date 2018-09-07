@@ -19,9 +19,9 @@ When he returned he took both bills and smiled.  "Thanks. for your patronage."
 
 I nodded.  "You're welcome."
 
-I didn't wait for change, I knew I wasn't getting any change back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his
+I didn't wait for change, I knew I wasn't getting any change back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI1NDEwNzk2MiwtMTI2MzQ3NTEzLDg5Mz
+eyJoaXN0b3J5IjpbMTgxOTYyMTk3OSwtMTI2MzQ3NTEzLDg5Mz
 M5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5
 MywtMTE3Nzc2MTI3MV19
 -->
