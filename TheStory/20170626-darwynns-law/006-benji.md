@@ -31,7 +31,7 @@ I shrugged, "Why do I have to say it if you can read my thoughts."  And I let my
 
 "You two are perfect for each other."
 
-"Tell him that."  I growled.
+"Tell him that," I growled.
 
 "I have, actually.  He refuses to read your texts.  I will admit that is one damn cute kid you got there."
 
@@ -77,11 +77,22 @@ I nodded.  "Alright.  Plan your usual.  I'll decide if I want to be there."  I d
 
 <!--stackedit_data:
 eyJkaXNjdXNzaW9ucyI6eyIxMnRoMmR6eHdGQTRkZG9OIjp7In
-RleHQiOiJhc2tlZCIsInN0YXJ0Ijo3NTgsImVuZCI6NzYzfX0s
-ImNvbW1lbnRzIjp7IlN4bTNSeU5waWkzOVh2VjgiOnsiZGlzY3
-Vzc2lvbklkIjoiMTJ0aDJkenh3RkE0ZGRvTiIsInN1YiI6Imdo
-OjQyNjA4NTcyIiwidGV4dCI6InNob2NrZWQgb3Igc3VycHJpc2
-VkPyIsImNyZWF0ZWQiOjE1MzYzMjM5NzAzMzd9fSwiaGlzdG9y
-eSI6Wy0xNjI4Mjg4OTYwLDYxNDgzODIzMSwtMjcxNzU3NzUwLC
-0xMzI4MDIwNjcyLC0xMzA4MjMxNTExXX0=
+RleHQiOiJhc2tlZCIsInN0YXJ0Ijo3NTgsImVuZCI6NzYzfSwi
+eXV5ZEw0SUd2SWFoNkFVMyI6eyJzdGFydCI6MTE3MiwiZW5kIj
+oxMTgwLCJ0ZXh0IjoiY2h1Y2tsZWQifX0sImNvbW1lbnRzIjp7
+IlN4bTNSeU5waWkzOVh2VjgiOnsiZGlzY3Vzc2lvbklkIjoiMT
+J0aDJkenh3RkE0ZGRvTiIsInN1YiI6ImdoOjQyNjA4NTcyIiwi
+dGV4dCI6InNob2NrZWQgb3Igc3VycHJpc2VkPyIsImNyZWF0ZW
+QiOjE1MzYzMjM5NzAzMzd9LCJ1VG1qcDJKbDFTNDkzbFZiIjp7
+ImRpc2N1c3Npb25JZCI6Inl1eWRMNElHdklhaDZBVTMiLCJzdW
+IiOiJnaDo0MjYwODU3MiIsInRleHQiOiJJIHRoaW5rIHNvbWV0
+aGluZyBleHRyYSBzaG91bGQgZ28gaW4gaGVyZSwgbWF5YmUgYW
+4gZXh0cmEgYml0IGFmdGVyIE5veCBkb2Vzbid0IGxlYXZlLCBz
+b21ldGhpbmcgYWJvdXQgd2h5LiAnSSBkaWRuJ3QgZ2V0IHVwLC
+BJIHdhbnRlZCB0byBrbm93IHdoYXQgdmFtcGlyZXMgaGFkIHRv
+IGRvIHdpdGggdGhpcy4gQmVuamkgY2h1Y2tsZWQsIG9idmlvdX
+NseSByZWFkaW5nIG1lLi4uJyIsImNyZWF0ZWQiOjE1MzYzMjQ1
+NTM4MzB9fSwiaGlzdG9yeSI6WzEyMTYzMzU3NzAsLTE2MjgyOD
+g5NjAsNjE0ODM4MjMxLC0yNzE3NTc3NTAsLTEzMjgwMjA2NzIs
+LTEzMDgyMzE1MTFdfQ==
 -->
