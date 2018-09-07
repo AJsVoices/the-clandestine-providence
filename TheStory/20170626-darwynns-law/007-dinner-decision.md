@@ -21,9 +21,11 @@ I nodded.  "You're welcome."
 
 I didn't wait for change, I knew I wasn't getting any change back.  I took the stairs one at a time all the way up to Alex's room.  I walked down the hall and past his room.  And then I turned back and walked past his room again.  I tried to listen in his room to see if he and Benji were there or if they had gone out.  I managed to hear a word or two but the couple across the hall were going at it like rabbits.  And there was a baby crying down a few floors.  So I didn't keep my senses out long, just long enough to know they were in there.  
 
-I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it yet.  The flowe
+I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it yet.  The flowers weren't wilting yet, but I was making myself nervous.  I stopped in front of the door and I thought about knocking.  I stared at the door for several more minutes before I paced again.  
+
+I stopped and worried if I was doing the right thing.  I even
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYzNDAwMjY3MSwtMTI2MzQ3NTEzLDg5Mz
-M5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5
-MywtMTE3Nzc2MTI3MV19
+eyJoaXN0b3J5IjpbLTE1ODYzNjc2MDMsLTEyNjM0NzUxMyw4OT
+MzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5
+OTMsLTExNzc3NjEyNzFdfQ==
 -->
