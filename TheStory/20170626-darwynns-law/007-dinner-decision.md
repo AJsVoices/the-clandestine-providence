@@ -29,10 +29,12 @@ Close to the second hour outside of debating I sat down across from the hall and
 
 I was lost in my thoughts when I heard the door open.  I stood up before the door opened and Benji, with his asian complexion and his frosted hair looked at me and asked, "How long have you been out here?"
 
-I didn't say anything as I saw Alex lumbering this way curious.  My breath caught as
+I didn't say anything as I saw Alex lumbering this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
+
+Benji laughed breaking the silence.  "I was just leaving."  He said as he slipped between me and the wall and headed for the elevator.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMTIwMzUyNDAsMTM5MTY2MTEyMiwtMj
-ExNjcxMDY2OCwtMTI1NjgyMjU3LDEwNTc4ODg2NzUsLTEyNjM0
-NzUxMyw4OTMzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLT
-ExNTI2MjU5OTMsLTExNzc3NjEyNzFdfQ==
+eyJoaXN0b3J5IjpbLTkxMjkwMzAyMCwxMzkxNjYxMTIyLC0yMT
+E2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4ODY3NSwtMTI2MzQ3
+NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMT
+E1MjYyNTk5MywtMTE3Nzc2MTI3MV19
 -->
