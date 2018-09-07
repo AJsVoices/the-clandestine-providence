@@ -7,9 +7,13 @@ I was washing back and forth and even the walk through city wasn't helping.  It 
 
 But it was food and Dorian would be upset if I didn't bring wine, so I asked in the bar.  The guy at the bar looked at me and frowned, "What can I do for you?"
 
-"I'd like your best red wine in 
+"I'd like your best red wine in a bottle."
+
+"You can't afford it."
+
+I sighed and took out my wallet.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgxMTgyNDAwOCw4OTMzOTYxNDEsLTIwMT
-M4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5OTMsLTExNzc3NjEy
-NzFdfQ==
+eyJoaXN0b3J5IjpbLTU2ODk3NTgsODkzMzk2MTQxLC0yMDEzOD
+c2NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcx
+XX0=
 -->
