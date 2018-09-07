@@ -11,9 +11,11 @@ But it was food and Dorian would be upset if I didn't bring wine, so I asked in 
 
 "You can't afford it."
 
-I sighed and took out my wallet.  
+I sighed and took out my wallet and dropped a couple hundred on the bar.  "Can I now?"
+
+He shook his head.  "
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2ODk3NTgsODkzMzk2MTQxLC0yMDEzOD
-c2NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcx
-XX0=
+eyJoaXN0b3J5IjpbLTIwMzU0MTc4MDIsODkzMzk2MTQxLC0yMD
+EzODc2NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYx
+MjcxXX0=
 -->
