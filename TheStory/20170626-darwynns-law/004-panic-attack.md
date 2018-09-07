@@ -25,7 +25,7 @@ She paled a little at my sarcasm.  I knew logically I'd be fine.  But my childho
 
 The child next to me yammered on.  I was grateful his grandmother was sitting between us but I couldn't wait for my music to be the only sound I heard.  Fuck!
 
-We started moving faster and tilting up and I squished my eyes clothes as I tried to keep my breathing even.  The kid next to me screamed as his ears built up pressure and he didn't know how to react.  My body tensed and I had a death grip on the arm rests.  The woman next to me didn't know what to do, between me and the screaming child.
+We started moving faster and tilting up and I squished my eyes closed as I tried to keep my breathing even.  The kid next to me screamed as his ears built up pressure and he didn't know how to react.  My body tensed and I had a death grip on the arm rests.  The woman next to me didn't know what to do, between me and the screaming child.
 
 The child eventually stopped as his ears equalized and I relaxed when the ding that signaled we could use our electronics was sounded.  I quickly pulled my earbuds out of my pocket and plugged it in and set the music to as loud as it would go.  I didn't care what I listened to as long as I could drown in it and feel nothing else.  
 
@@ -48,9 +48,9 @@ Alex just chuckled as he pinned my hands above my head and we shifted to a bed i
 I sighed and opened my eyes.  I shifted uncomfortably and the woman next to me just glared at me.  Her eyes glanced down to my pants and I knew fully well why, but I didn't care as she stared at my tightening jeans.  He couldn't leave the seat either.  She shook he head and mumbled, "Pervert!" And I couldn't help but chuckle.  Alex would have provoked me further if he'd known.  And I would have tried to remain quiet.  If only he were here...
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU5ODg0OTQ5NywxNDc5NzgwMDM0LDEyNz
-UyMDE3NzEsMTc5OTg1MjQyNiw4MzU2MDc2MTMsNzY1NDgxOTY2
-LC0xMTc1ODE1MjkyLC04MjI0NjEyMjQsNjgxOTk2NTAxLC04MT
-YzNjk0MTAsNDc4OTEzNDI1LDEwNDEzMTcxMjYsMTAzNTYyMDI3
-OSwxOTE4OTQ0MzMyXX0=
+eyJoaXN0b3J5IjpbLTQ3NzY3OTM5NywtNTk4ODQ5NDk3LDE0Nz
+k3ODAwMzQsMTI3NTIwMTc3MSwxNzk5ODUyNDI2LDgzNTYwNzYx
+Myw3NjU0ODE5NjYsLTExNzU4MTUyOTIsLTgyMjQ2MTIyNCw2OD
+E5OTY1MDEsLTgxNjM2OTQxMCw0Nzg5MTM0MjUsMTA0MTMxNzEy
+NiwxMDM1NjIwMjc5LDE5MTg5NDQzMzJdfQ==
 -->
