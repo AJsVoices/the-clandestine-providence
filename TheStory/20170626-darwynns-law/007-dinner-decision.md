@@ -19,9 +19,11 @@ When he returned he took both bills and smiled.  "Thanks. for your patronage."
 
 I nodded.  "You're welcome."
 
-I didn't wait for change, I knew I wasn't getting any.
+I didn't wait for change, I knew I wasn't getting any change back.
+
+"
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4NjU1NjU1Nyw4OTMzOTYxNDEsLTIwMT
-M4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5OTMsLTExNzc3NjEy
-NzFdfQ==
+eyJoaXN0b3J5IjpbNTY3MjQ5NjI2LDg5MzM5NjE0MSwtMjAxMz
+g3NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3
+MV19
 -->
