@@ -27,7 +27,7 @@ I stopped and worried if I was doing the right thing.  I even made it to the ele
 
 Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw Alex in my head.  It was a recent dream.  I couldn't see anything, just dark.  Me and Alex.  Just the two of us.
 
-I was lost in my thoughts when I heard the door open.  I stood up before the door opened and Benji, with his asian complexion and his frosted hair looked at me and asked, "How long have you been out here?"
+I was lost in my thoughts when I heard the door open.  I stood up before the door was fully opened and Benji, with his Asian complexion and his frosted hair looked at me and asked, "How long have you been there?"
 
 I didn't say anything as I saw Alex lumbering this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
 
@@ -45,9 +45,9 @@ Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that an
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzUyOTMzMzQxLDI1NTcyMDgzNSwtNTIxMD
-cyNjMzLDE4MjY3MDAwNTEsMTM5MTY2MTEyMiwtMjExNjcxMDY2
-OCwtMTI1NjgyMjU3LDEwNTc4ODg2NzUsLTEyNjM0NzUxMyw4OT
-MzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5
-OTMsLTExNzc3NjEyNzFdfQ==
+eyJoaXN0b3J5IjpbLTk4NTg1Nzg3NiwyNTU3MjA4MzUsLTUyMT
+A3MjYzMywxODI2NzAwMDUxLDEzOTE2NjExMjIsLTIxMTY3MTA2
+NjgsLTEyNTY4MjI1NywxMDU3ODg4Njc1LC0xMjYzNDc1MTMsOD
+kzMzk2MTQxLC0yMDEzODc2NzI3LDkyODgwNjkyLC0xMTUyNjI1
+OTkzLC0xMTc3NzYxMjcxXX0=
 -->
