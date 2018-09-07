@@ -29,7 +29,7 @@ Close to the second hour outside of debating I sat down across from the hall and
 
 I was lost in my thoughts when I heard the door open.  I stood up before the door was fully opened and Benji, with his sian complexion and his frosted hair looked at me and asked, "How long have you been there?"
 
-I didn't say anything as I saw Alex eing this way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
+I didn't say anything as I saw Alex creeping my way curious.  My breath caught as I saw him in a pair of sweats and a t-shirt.  His hair was blonde.  I knew I'd seen that before, but seeing it with his blue eyes I couldn't really make heads or tails of it.  I wanted to say something but I just stared at him.  
 
 Benji laughed breaking the silence.  "I was just leaving."  He said as he slipped between me and the wall and headed for the elevator.  
 
@@ -45,7 +45,7 @@ The sound of shattering glass broke me from my onslaught of emotions and I shove
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIxMjkwMjc3LC0zODQ1NTAzNDcsMTU0Mz
+eyJoaXN0b3J5IjpbNzk5OTU5OTk1LC0zODQ1NTAzNDcsMTU0Mz
 g0MTA1LDI1NTcyMDgzNSwtNTIxMDcyNjMzLDE4MjY3MDAwNTEs
 MTM5MTY2MTEyMiwtMjExNjcxMDY2OCwtMTI1NjgyMjU3LDEwNT
 c4ODg2NzUsLTEyNjM0NzUxMyw4OTMzOTYxNDEsLTIwMTM4NzY3
