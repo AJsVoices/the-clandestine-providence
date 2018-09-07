@@ -25,9 +25,10 @@ I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it y
 
 I stopped and worried if I was doing the right thing.  I even made it to the elevator a few times before I turned back.  
 
-Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  
+Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyNTY4MjI1NywxMDU3ODg4Njc1LC0xMj
-YzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2NzI3LDkyODgwNjky
-LC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX0=
+eyJoaXN0b3J5IjpbLTE2MDc2Mzk1MTMsLTEyNTY4MjI1NywxMD
+U3ODg4Njc1LC0xMjYzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2
+NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX
+0=
 -->
