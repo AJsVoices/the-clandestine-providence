@@ -1,7 +1,7 @@
 # Benji
-When we were outside and several blocks away from the strip Benji opened a door to a building in the side of some diner.  It smelled like the kitchen was nearby cooking some kind of Asian food.  "Korean."  He said without me having to ask.
+When we were outside and several blocks away from the strip Benji opened a door to a building in the side of some diner.  It smelled like the kitchen was nearby cooking some kind of Asian food.  "Korean"  He said without me having to ask.
 
-"You know that's as weird as when _he_ does that."  I said.
+"You know that's as weird as when _he_ does that I said.
 
 Benji shook his head.  "Sorry.  I forget that you weren't asking out loud."
 
@@ -11,7 +11,7 @@ Benji lead me down a narrow hallway into a smaller room with a rod-iron bed fram
 
 "Vampires?  You know about vampires?"  I asked.
 
-He gave me a slow cautious nod before he added.  "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can do what we do.  It's why we stay away from them.  But Alex is working a job around vamps and they can't know his name, or that he's friends with me.  So no Alex anything.  You don't know me either."
+He gave me a slow cautious nod before he added "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can do what we do.  It's why we stay away from them.  But Alex is working a job around vamps and they can't know his name, or that he's friends with me.  So no Alex anything.  You don't know me either."
 
 "Another reason I should just go."  I said but I didn't get up.
 
@@ -76,6 +76,12 @@ Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 I nodded.  "Alright.  Plan your usual.  I'll decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjE0ODM4MjMxLC0yNzE3NTc3NTAsLTEzMj
-gwMjA2NzIsLTEzMDgyMzE1MTFdfQ==
+eyJkaXNjdXNzaW9ucyI6eyIxMnRoMmR6eHdGQTRkZG9OIjp7In
+RleHQiOiJhc2tlZCIsInN0YXJ0Ijo3NTgsImVuZCI6NzYzfX0s
+ImNvbW1lbnRzIjp7IlN4bTNSeU5waWkzOVh2VjgiOnsiZGlzY3
+Vzc2lvbklkIjoiMTJ0aDJkenh3RkE0ZGRvTiIsInN1YiI6Imdo
+OjQyNjA4NTcyIiwidGV4dCI6InNob2NrZWQgb3Igc3VycHJpc2
+VkPyIsImNyZWF0ZWQiOjE1MzYzMjM5NzAzMzd9fSwiaGlzdG9y
+eSI6Wy0xNjI4Mjg4OTYwLDYxNDgzODIzMSwtMjcxNzU3NzUwLC
+0xMzI4MDIwNjcyLC0xMzA4MjMxNTExXX0=
 -->
