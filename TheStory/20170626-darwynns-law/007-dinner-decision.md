@@ -41,10 +41,12 @@ I started to stay something but my voice caught.  I took a deep breath and tried
 
 Alex hadn't taken the offerings and I was in a wrong moment.  I squatted down and laid the offerings at his feet and I looked up remember that view.  It was the last time I was going to see it.  I stood up and I took a step back.  "I came here to see you are alright.  You seem to be doing great, forgetting me with ease.  So I'm going to do the decent thing."  I squared my shoulders and I looked Alex straight in his blue eyes and I said, "I spent the last few days remembering everything you made me forget about us.  And now, I wish I hadn't found out.  You can go to hell, Al..."  His name was muffled by his lips as he pressed a hard and fast kiss against my lips.  He grabbed a fistful of my shirt and pulled me past the threshold of his room.  I kicked the flowers and wine bottle inside and Alex kicked the door shut.
 
-Once inside I sho
+Once inside I shoved Alex away from me.  "Fuck you.  You don't get to do that anymore.  You fucking left."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0MDQ5MzU5NDYsMTgyNjcwMDA1MSwxMz
-kxNjYxMTIyLC0yMTE2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4
-ODY3NSwtMTI2MzQ3NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNy
-w5Mjg4MDY5MiwtMTE1MjYyNTk5MywtMTE3Nzc2MTI3MV19
+eyJoaXN0b3J5IjpbLTUyMTA3MjYzMywxODI2NzAwMDUxLDEzOT
+E2NjExMjIsLTIxMTY3MTA2NjgsLTEyNTY4MjI1NywxMDU3ODg4
+Njc1LC0xMjYzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2NzI3LD
+kyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX0=
 -->
