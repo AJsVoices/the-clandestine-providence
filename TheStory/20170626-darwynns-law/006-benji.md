@@ -35,7 +35,7 @@ I shrugged, "Why do I have to say it if you can read my thoughts."  And I let my
 
 "I have, actually.  He refuses to read your texts.  I will admit that is one damn cute kid you got there."
 
-"Not mine yet, but soon."  I said.  
+"Not mine yet, but soon," I said.  
 
 "And the little girl?"
 
@@ -61,7 +61,7 @@ Benji laughed, "That's all Alex ever does; fight - or run away.  Looks like he's
 
 "We have dinner tonight.  Me and him in his room.  Let me take you there, you can shower, change and then you and he can sit down and talk."
 
-"I have nothing to change into, this is what I have."  I said.  "I'm going to catch the next flight out.  He obviously doesn't want me."
+"I have nothing to change into, this is what I have," I said.  "I'm going to catch the next flight out.  He obviously doesn't want me."
 
 "No."  Benji stood up and got in my face.  "You will not go anywhere.  I can make you stay."
 
@@ -69,11 +69,11 @@ I sighed, "That's exactly how this fight started, Alex nudging me into doing som
 
 Benji sighed as he backed away.  "Alright.  I won't do that.  But talk to him."
 
-"I'll think about it."  I said.  "What time is dinner?"
+"I'll think about it," I said. "What time is dinner?"
 
 "We are doing it at 6 local time.  That's in three hours."
 
-I nodded.  "Alright.  Plan your usual.  I'll decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
+I nodded. "Alright.  Plan your usual.  I'll decide if I want to be there."  I didn't wait for a confirmation.  I just left Benji the same way I came in.
 
 <!--stackedit_data:
 eyJkaXNjdXNzaW9ucyI6eyIxMnRoMmR6eHdGQTRkZG9OIjp7In
@@ -92,7 +92,7 @@ b21ldGhpbmcgYWJvdXQgd2h5LiAnSSBkaWRuJ3QgZ2V0IHVwLC
 BJIHdhbnRlZCB0byBrbm93IHdoYXQgdmFtcGlyZXMgaGFkIHRv
 IGRvIHdpdGggdGhpcy4gQmVuamkgY2h1Y2tsZWQsIG9idmlvdX
 NseSByZWFkaW5nIG1lLi4uJyIsImNyZWF0ZWQiOjE1MzYzMjQ1
-NTM4MzB9fSwiaGlzdG9yeSI6WzEyMTYzMzU3NzAsLTE2MjgyOD
+NTM4MzB9fSwiaGlzdG9yeSI6WzIwNjI0NjI2NDIsLTE2MjgyOD
 g5NjAsNjE0ODM4MjMxLC0yNzE3NTc3NTAsLTEzMjgwMjA2NzIs
 LTEzMDgyMzE1MTFdfQ==
 -->
