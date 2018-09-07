@@ -27,10 +27,12 @@ I stopped and worried if I was doing the right thing.  I even made it to the ele
 
 Close to the second hour outside of debating I sat down across from the hall and leaned my head against the wall.  I closed my eyes and I saw Alex in my head.  It was a recent dream.  I couldn't see anything, just dark.  Me and Alex.  Just the two of us.
 
-I was lost in my thoughts when I heard the door open.
+I was lost in my thoughts when I heard the door open.  I stood up before the door opened and Benji, with his asian complexion and his frosted hair looked at me and asked, "How long have you been out here?"
+
+I didn't say anything as I saw Alex lumbering this way curious.  My breath caught as
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA0NTA2MjQ0MSwxMzkxNjYxMTIyLC0yMT
-E2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4ODY3NSwtMTI2MzQ3
-NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMT
-E1MjYyNTk5MywtMTE3Nzc2MTI3MV19
+eyJoaXN0b3J5IjpbLTIxMTIwMzUyNDAsMTM5MTY2MTEyMiwtMj
+ExNjcxMDY2OCwtMTI1NjgyMjU3LDEwNTc4ODg2NzUsLTEyNjM0
+NzUxMyw4OTMzOTYxNDEsLTIwMTM4NzY3MjcsOTI4ODA2OTIsLT
+ExNTI2MjU5OTMsLTExNzc3NjEyNzFdfQ==
 -->
