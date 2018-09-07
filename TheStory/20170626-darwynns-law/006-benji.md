@@ -9,7 +9,7 @@ I shrugged, "I'm used to it."
 
 Benji lead me down a narrow hallway into a smaller room with a rod-iron bed frame and a plain blue mattress with a desk and a chair the only other furniture.  He offered me the bed and pulled around the chair to face it.  "This is a safe place to speak.  Vampires don't come into this part of town."
 
-"Vampires?  You know about vampires?"  I asked.
+"Vampires?  You know about vampires?"  I asked in shock that he would one know but more importantly he'd say it so casually.
 
 He gave me a slow cautious nod before he added "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can do what we do.  It's why we stay away from them.  But Alex is working a job around vamps and they can't know his name, or that he's friends with me.  So no Alex anything.  You don't know me either."
 
@@ -78,8 +78,8 @@ I nodded. "Alright.  Plan your usual.  I'll decide if I want to be there."  I di
 <!--stackedit_data:
 eyJkaXNjdXNzaW9ucyI6eyIxMnRoMmR6eHdGQTRkZG9OIjp7In
 RleHQiOiJhc2tlZCIsInN0YXJ0Ijo3NTgsImVuZCI6NzYzfSwi
-eXV5ZEw0SUd2SWFoNkFVMyI6eyJzdGFydCI6MTE3MiwiZW5kIj
-oxMTgwLCJ0ZXh0IjoiY2h1Y2tsZWQifX0sImNvbW1lbnRzIjp7
+eXV5ZEw0SUd2SWFoNkFVMyI6eyJ0ZXh0IjoiY2h1Y2tsZWQiLC
+JzdGFydCI6MTI0OSwiZW5kIjoxMjU3fX0sImNvbW1lbnRzIjp7
 IlN4bTNSeU5waWkzOVh2VjgiOnsiZGlzY3Vzc2lvbklkIjoiMT
 J0aDJkenh3RkE0ZGRvTiIsInN1YiI6ImdoOjQyNjA4NTcyIiwi
 dGV4dCI6InNob2NrZWQgb3Igc3VycHJpc2VkPyIsImNyZWF0ZW
@@ -92,7 +92,7 @@ b21ldGhpbmcgYWJvdXQgd2h5LiAnSSBkaWRuJ3QgZ2V0IHVwLC
 BJIHdhbnRlZCB0byBrbm93IHdoYXQgdmFtcGlyZXMgaGFkIHRv
 IGRvIHdpdGggdGhpcy4gQmVuamkgY2h1Y2tsZWQsIG9idmlvdX
 NseSByZWFkaW5nIG1lLi4uJyIsImNyZWF0ZWQiOjE1MzYzMjQ1
-NTM4MzB9fSwiaGlzdG9yeSI6WzIwNjI0NjI2NDIsLTE2MjgyOD
-g5NjAsNjE0ODM4MjMxLC0yNzE3NTc3NTAsLTEzMjgwMjA2NzIs
-LTEzMDgyMzE1MTFdfQ==
+NTM4MzB9fSwiaGlzdG9yeSI6WzExMDc5ODYyNDAsMjA2MjQ2Mj
+Y0MiwtMTYyODI4ODk2MCw2MTQ4MzgyMzEsLTI3MTc1Nzc1MCwt
+MTMyODAyMDY3MiwtMTMwODIzMTUxMV19
 -->
