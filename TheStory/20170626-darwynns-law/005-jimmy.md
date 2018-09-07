@@ -1,5 +1,5 @@
 # Jimmy
-My thoughts drifted to Alex the whole flight.  I was hard and wonton by the time we landed and the woman next to me hurried off the plane as quickly as she could.  As much as I wanted off the plane, I decided to wait until everyone cleared out.  It was better for me.  Even though the plane was getting claustrophobic and I was having a hard time breathing.
+My thoughts drifted to Alex the whole flight.  I was hard and wanton by the time we landed and the woman next to me hurried off the plane as quickly as she could.  As much as I wanted off the plane, I decided to wait until everyone cleared out.  It was better for me.  Even though the plane was getting claustrophobic and I was having a hard time breathing.
 
 One of the male attendants was making sure no one left anything on the plane or sleeping still in their seats when I stood up to get out of the plane.  He looked down at me and chuckled, "I was wondering why she glared at you so."
 
@@ -55,5 +55,5 @@ I smirked as I heard Alex saying that to Benji.  Benji chuckled, "Fuck he was ri
 
 I sighed and nodded.  With my ascent Benji dragged me out of the hotel and we walked.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY0Mjc1NTk2OV19
+eyJoaXN0b3J5IjpbMTY0ODEzOTk4MSwtNjQyNzU1OTY5XX0=
 -->
