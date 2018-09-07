@@ -13,9 +13,9 @@ But it was food and Dorian would be upset if I didn't bring wine, so I asked in 
 
 I sighed and took out my wallet and dropped a couple hundred on the bar.  "Can I now?"
 
-He shook his head.  "
+He shook his head.  "Sorry man."  He didn't wait for me to say anything more as he headed to th
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzU0MTc4MDIsODkzMzk2MTQxLC0yMD
-EzODc2NzI3LDkyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYx
-MjcxXX0=
+eyJoaXN0b3J5IjpbMTc3NjczNjc4Miw4OTMzOTYxNDEsLTIwMT
+M4NzY3MjcsOTI4ODA2OTIsLTExNTI2MjU5OTMsLTExNzc3NjEy
+NzFdfQ==
 -->
