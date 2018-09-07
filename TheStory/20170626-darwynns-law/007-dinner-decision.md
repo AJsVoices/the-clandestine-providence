@@ -23,9 +23,9 @@ I didn't wait for change, I knew I wasn't getting any change back.  I took the s
 
 I paced for an hour.  Thankfully the wine had been warm so I wasn't ruining it yet.  The flowers weren't wilting yet, but I was making myself nervous.  I stopped in front of the door and I thought about knocking.  I stared at the door for several more minutes before I paced again.  
 
-I stopped and worried if I was doing the right thing.  I even made it to the 
+I stopped and worried if I was doing the right thing.  I even made it to the elevator a few times before I turned back
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA1Nzg4ODY3NSwtMTI2MzQ3NTEzLDg5Mz
-M5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMTE1MjYyNTk5
-MywtMTE3Nzc2MTI3MV19
+eyJoaXN0b3J5IjpbLTQ3ODQ4Njg2OSwxMDU3ODg4Njc1LC0xMj
+YzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2NzI3LDkyODgwNjky
+LC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX0=
 -->
