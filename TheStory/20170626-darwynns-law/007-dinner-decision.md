@@ -33,10 +33,14 @@ I didn't say anything as I saw Alex lumbering this way curious.  My breath caugh
 
 Benji laughed breaking the silence.  "I was just leaving."  He said as he slipped between me and the wall and headed for the elevator.  
 
-The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and looked down at the floor
+The elevator dinged and I heard them slide closed and Alex and I hadn't said a thing or moved, we only stared at each other.  I broke our gaze and looked down at the floor pushing the flowers and wine at Alex as I did so.  I stared at his chest, not the floor.  He didn't like when I went submissive but the silence and the staring made me uncomfortable.
+
+Alex asked, "What are you doing here?"  It wasn't a pleasant tone and I wanted to shriek away from it.  He was angry.
+
+I started to stay something but my voice caught.  I t
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgyNjcwMDA1MSwxMzkxNjYxMTIyLC0yMT
-E2NzEwNjY4LC0xMjU2ODIyNTcsMTA1Nzg4ODY3NSwtMTI2MzQ3
-NTEzLDg5MzM5NjE0MSwtMjAxMzg3NjcyNyw5Mjg4MDY5MiwtMT
-E1MjYyNTk5MywtMTE3Nzc2MTI3MV19
+eyJoaXN0b3J5IjpbLTU1MDIyNTgyNiwxODI2NzAwMDUxLDEzOT
+E2NjExMjIsLTIxMTY3MTA2NjgsLTEyNTY4MjI1NywxMDU3ODg4
+Njc1LC0xMjYzNDc1MTMsODkzMzk2MTQxLC0yMDEzODc2NzI3LD
+kyODgwNjkyLC0xMTUyNjI1OTkzLC0xMTc3NzYxMjcxXX0=
 -->
