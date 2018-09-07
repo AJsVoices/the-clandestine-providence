@@ -13,7 +13,7 @@ Benji lead me down a narrow hallway into a smaller room with a rod-iron bed fram
 
 He gave me a slow cautious nod before he added "Only recently.  Well I never gave it much thought before, but yeah.  We know vamps can do what we do.  It's why we stay away from them.  But Alex is working a job around vamps and they can't know his name, or that he's friends with me.  So no Alex anything.  You don't know me either."
 
-"Another reason I should just go."  I said but I didn't get up.
+"Another reason I should just go."  I said but I didn't get up.  Vampires, friends I had never heard about, why I wasn't supposed to know these things - all valid reasons to stay I told myself.
 
 Benji chuckled.  "Alex and I met after his mother died.  We were working the same crowd and ran into each other in the stupidest ways - telepathically listening to each other and holding a conversation we didn't mean to have from across the room."
 
@@ -79,7 +79,7 @@ I nodded. "Alright.  Plan your usual.  I'll decide if I want to be there."  I di
 eyJkaXNjdXNzaW9ucyI6eyIxMnRoMmR6eHdGQTRkZG9OIjp7In
 RleHQiOiJhc2tlZCIsInN0YXJ0Ijo3NTgsImVuZCI6NzYzfSwi
 eXV5ZEw0SUd2SWFoNkFVMyI6eyJ0ZXh0IjoiY2h1Y2tsZWQiLC
-JzdGFydCI6MTI0OSwiZW5kIjoxMjU3fX0sImNvbW1lbnRzIjp7
+JzdGFydCI6MTM3OSwiZW5kIjoxMzg3fX0sImNvbW1lbnRzIjp7
 IlN4bTNSeU5waWkzOVh2VjgiOnsiZGlzY3Vzc2lvbklkIjoiMT
 J0aDJkenh3RkE0ZGRvTiIsInN1YiI6ImdoOjQyNjA4NTcyIiwi
 dGV4dCI6InNob2NrZWQgb3Igc3VycHJpc2VkPyIsImNyZWF0ZW
@@ -92,7 +92,7 @@ b21ldGhpbmcgYWJvdXQgd2h5LiAnSSBkaWRuJ3QgZ2V0IHVwLC
 BJIHdhbnRlZCB0byBrbm93IHdoYXQgdmFtcGlyZXMgaGFkIHRv
 IGRvIHdpdGggdGhpcy4gQmVuamkgY2h1Y2tsZWQsIG9idmlvdX
 NseSByZWFkaW5nIG1lLi4uJyIsImNyZWF0ZWQiOjE1MzYzMjQ1
-NTM4MzB9fSwiaGlzdG9yeSI6WzExMDc5ODYyNDAsMjA2MjQ2Mj
+NTM4MzB9fSwiaGlzdG9yeSI6WzEzODQzODc0NjQsMjA2MjQ2Mj
 Y0MiwtMTYyODI4ODk2MCw2MTQ4MzgyMzEsLTI3MTc1Nzc1MCwt
 MTMyODAyMDY3MiwtMTMwODIzMTUxMV19
 -->
