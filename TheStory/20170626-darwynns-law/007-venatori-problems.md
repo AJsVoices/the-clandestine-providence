@@ -23,13 +23,13 @@ The elevator stopped and I rushed out before the goons.  I sighed as I waited fo
 
 Scarlet was sitting on a plush red couch lined with gold filigree and drinking a dark red wine probably from a crystal fluted glass more expensive than my entire dinnerware set.  She was wearing a black dress in four inch stiletto heels in patent leather.  Dorian would know the brand I'm sure.  Her blond hair was short and gelled back, her lips were painted red and her lashes were long and thick and completely fake. 
 
- Her legs were up on the couch like she was an enticing treat.  I smirked as I was lead to a seat and motioned by her men to sit.  "Mr. S
+ Her legs were up on the couch like she was an enticing treat.  I smirked as I was lead to a seat and motioned by her men to sit.  "Mr. Sétanta, a pleasure."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzM5MTE3ODkzLC0yMDk5MTA1MDEsLTk5Mj
-YxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3NDc3LC0xNTkzOTYy
-MTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1MjYsMTU4OTQ2NzE5Ni
-wtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5NDA0MTg0LC03OTE1
-MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMxMjQ1Mj
-UwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYs
-LTc5NzU2ODA3MF19
+eyJoaXN0b3J5IjpbMTc5MjUwMjk3NiwtMjA5OTEwNTAxLC05OT
+I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
+MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
+YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
+NTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NT
+I1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2
+LC03OTc1NjgwNzBdfQ==
 -->
