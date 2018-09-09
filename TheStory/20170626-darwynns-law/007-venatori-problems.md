@@ -13,14 +13,15 @@ We approached the elevator and I stopped and the guy following me ran into me.  
 
 The guy behind me  shoved me towards the elevator.  "Let's get going. You don't want to keep Ms. Slow waiting."
 
-"I bet I can beat you up to the
+"I bet I can beat you up to the stairs."  I challenged him.
+
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk0MDQxODQsLTc5MTUyNDQzMiwtMTU1OT
-U0NDAzMSwtMjYwMTQ3ODkwLDE4MzEyNDUyNTAsMjA4OTU0Nzk2
-NywtMTkxOTk5MzUyMywtMTQ2Mjg1NjczNiwtNzk3NTY4MDcwLC
-04Mjk5NTkyNzddfQ==
+eyJoaXN0b3J5IjpbMTMzMjAzMjgyNiwxOTQwNDE4NCwtNzkxNT
+I0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NTI1
+MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2LC
+03OTc1NjgwNzAsLTgyOTk1OTI3N119
 -->
