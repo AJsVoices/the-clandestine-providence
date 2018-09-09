@@ -19,13 +19,13 @@ He shoved me again and I sighed.  "Fine."  I growled.
 
 I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying his company and they were having dinner together.
 
-The elevator sai
+The elevator stopped and I rushed out before the goons.  I siged
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMzE1MTI5NzAsMTgyOTg2NDMwMSwxOT
+eyJoaXN0b3J5IjpbLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOT
 QwNDE4NCwtNzkxNTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4
 OTAsMTgzMTI0NTI1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC
 0xNDYyODU2NzM2LC03OTc1NjgwNzAsLTgyOTk1OTI3N119
