@@ -10,8 +10,10 @@ I had never expected to meet her though.  I guess I was gonna get that wish rega
 And I was one of those outliers and I was watched just as closely though for completely different reasons - obviously.
 
 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI2MDE0Nzg5MCwxODMxMjQ1MjUwLDIwOD
-k1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYsLTc5NzU2
-ODA3MCwtODI5OTU5Mjc3XX0=
+eyJoaXN0b3J5IjpbMTk0MDQxNjI5OCwtMjYwMTQ3ODkwLDE4Mz
+EyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1
+NjczNiwtNzk3NTY4MDcwLC04Mjk5NTkyNzddfQ==
 -->
