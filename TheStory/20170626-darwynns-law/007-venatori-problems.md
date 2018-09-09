@@ -15,13 +15,16 @@ The guy behind me  shoved me towards the elevator.  "Let's get going. You don't 
 
 "I bet I can beat you up to the stairs."  I challenged him.
 
+He shoved me again and I sighed.  "Fine."  I growled.
+
+I stepped inside the plate glass death trap
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMzMjAzMjgyNiwxOTQwNDE4NCwtNzkxNT
-I0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NTI1
-MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2LC
-03OTc1NjgwNzAsLTgyOTk1OTI3N119
+eyJoaXN0b3J5IjpbNDQyMjMwNTQ5LDE5NDA0MTg0LC03OTE1Mj
+Q0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMxMjQ1MjUw
+LDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYsLT
+c5NzU2ODA3MCwtODI5OTU5Mjc3XX0=
 -->
