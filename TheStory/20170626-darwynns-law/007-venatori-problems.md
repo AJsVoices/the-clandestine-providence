@@ -17,14 +17,14 @@ The guy behind me  shoved me towards the elevator.  "Let's get going. You don't 
 
 He shoved me again and I sighed.  "Fine."  I growled.
 
-I stepped inside the plate glass death trap
+I stepped inside the plate glass death trap and pressed myself up against the b
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDQyMjMwNTQ5LDE5NDA0MTg0LC03OTE1Mj
-Q0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMxMjQ1MjUw
-LDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYsLT
-c5NzU2ODA3MCwtODI5OTU5Mjc3XX0=
+eyJoaXN0b3J5IjpbLTE3MTUyNzM5MTUsMTk0MDQxODQsLTc5MT
+UyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLDE4MzEyNDUy
+NTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1NjczNi
+wtNzk3NTY4MDcwLC04Mjk5NTkyNzddfQ==
 -->
