@@ -21,14 +21,15 @@ I stepped inside the plate glass death trap and pressed myself up against the ba
 
 The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo here and I was okay with that.  The stepped in front of me again and I followed them into a lavious room that was more home than it was office.  Some Venatori were pretentious.  
 
-Scarlet was sitting on a plush red couch lined with gold filigree and drinking a dark red wine probably from a crystal fluted glass more expensive than my entire dinnerware set.
+Scarlet was sitting on a plush red couch lined with gold filigree and drinking a dark red wine probably from a crystal fluted glass more expensive than my entire dinnerware set.  She was wearing a black dress in four inch stiletto heels in patent leather.  Dorian would know the brand I'm sure.  
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMT
-U5Mzk2MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0
-NjcxOTYsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NC
-wtNzkxNTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgz
-MTI0NTI1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyOD
-U2NzM2LC03OTc1NjgwNzAsLTgyOTk1OTI3N119
+eyJoaXN0b3J5IjpbMTMzMzE4OTYwMCwtMzE3MjQzODY0LC0xOD
+UwMTM3NDc3LC0xNTkzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUx
+MDk1MjYsMTU4OTQ2NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0Mz
+AxLDE5NDA0MTg0LC03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2
+MDE0Nzg5MCwxODMxMjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OT
+M1MjMsLTE0NjI4NTY3MzYsLTc5NzU2ODA3MCwtODI5OTU5Mjc3
+XX0=
 -->
