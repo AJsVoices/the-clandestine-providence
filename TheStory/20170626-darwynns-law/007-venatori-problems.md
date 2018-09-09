@@ -11,10 +11,11 @@ And I was one of those outliers and I was watched just as closely though for com
 
 We approached the elevator and I stopped and the guy following me ran into me.    "Uh, can we take the stairs."  I looked at the hotel elevator that was just as bad as the one in the AU building with its plate glass walls.  
 
+The guy behind me 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2NzA2NjExOSwtMjYwMTQ3ODkwLDE4Mz
-EyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1
-NjczNiwtNzk3NTY4MDcwLC04Mjk5NTkyNzddfQ==
+eyJoaXN0b3J5IjpbLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxOD
+MxMjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4
+NTY3MzYsLTc5NzU2ODA3MCwtODI5OTU5Mjc3XX0=
 -->
