@@ -7,11 +7,11 @@ I sighed.  "Fine."  I didn't fight them, there was no point.  I was on their ter
 
 I had never expected to meet her though.  I guess I was gonna get that wish regardless of whether or not I wanted it.  She was a scary sob if the rumors were true.  We walked into one of the fancy casinos and headed off to the side to the executive elevators.  The high rollers and such and we went all the way to the top floor.  Ms. Snow was rich and famous and she paraded the exotic on stage of her hotel and casino.  She didn't have real magic or dragons in use that would be a gross breach of The Clandestine Providence but she skirted the edge of reality with her shows.  There was a lot of things that could go wrong here, and there were people who specifically watched those who were outliers.  
 
-And I was one of those outliers.
+And I was one of those outliers and I was watched just as closely though for completely different reasons - obviously.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDg4OTgyNzEsMTgzMTI0NTI1MCwyMD
-g5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2LC03OTc1
-NjgwNzAsLTgyOTk1OTI3N119
+eyJoaXN0b3J5IjpbLTI2MDE0Nzg5MCwxODMxMjQ1MjUwLDIwOD
+k1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYsLTc5NzU2
+ODA3MCwtODI5OTU5Mjc3XX0=
 -->
