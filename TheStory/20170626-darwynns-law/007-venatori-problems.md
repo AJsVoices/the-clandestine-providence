@@ -17,14 +17,14 @@ The guy behind me  shoved me towards the elevator.  "Let's get going. You don't 
 
 He shoved me again and I sighed.  "Fine."  I growled.
 
-I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying hihs company.  
+I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying his company.  
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkxNT
-I0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NTI1
-MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2LC
-03OTc1NjgwNzAsLTgyOTk1OTI3N119
+eyJoaXN0b3J5IjpbLTMwMDA1NDA2MSwxODI5ODY0MzAxLDE5ND
+A0MTg0LC03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5
+MCwxODMxMjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLT
+E0NjI4NTY3MzYsLTc5NzU2ODA3MCwtODI5OTU5Mjc3XX0=
 -->
