@@ -9,11 +9,12 @@ I had never expected to meet her though.  I guess I was gonna get that wish rega
 
 And I was one of those outliers and I was watched just as closely though for completely different reasons - obviously.
 
+We approached the elevator and I stopped and the guy following me ran into me.    "Uh, can we take the stairs."  I looked at the hotel elevator that was just as bad as the one in the AU building with its plate glass walls.  
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk0MDQxNjI5OCwtMjYwMTQ3ODkwLDE4Mz
+eyJoaXN0b3J5IjpbLTU2NzA2NjExOSwtMjYwMTQ3ODkwLDE4Mz
 EyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1
 NjczNiwtNzk3NTY4MDcwLC04Mjk5NTkyNzddfQ==
 -->
