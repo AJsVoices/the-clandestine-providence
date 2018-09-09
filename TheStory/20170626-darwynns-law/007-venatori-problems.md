@@ -17,13 +17,13 @@ The guy behind me  shoved me towards the elevator.  "Let's get going. You don't 
 
 He shoved me again and I sighed.  "Fine."  I growled.
 
-I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated eledvators.
+I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk0MzI4OTk5OCwxOTQwNDE4NCwtNzkxNT
+eyJoaXN0b3J5IjpbMTU3NTA4OTM5NCwxOTQwNDE4NCwtNzkxNT
 I0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NTI1
 MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2LC
 03OTc1NjgwNzAsLTgyOTk1OTI3N119
