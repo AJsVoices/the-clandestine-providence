@@ -19,15 +19,12 @@ He shoved me again and I sighed.  "Fine."  I growled.
 
 I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying his company and they were having dinner together.
 
-The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo h ere and I was okay with that.
-
-
-
+The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo here and I was okay with that.  The stepped in front of me again and I followed them into a lavious room tha
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMzNTEwOTUyNiwxNTg5NDY3MTk2LC0xND
-E1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQxODQsLTc5MTUyNDQz
-MiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLDE4MzEyNDUyNTAsMj
-A4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1NjczNiwtNzk3
-NTY4MDcwLC04Mjk5NTkyNzddfQ==
+eyJoaXN0b3J5IjpbLTIwMjU3MTI1MDUsMTMzNTEwOTUyNiwxNT
+g5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQx
+ODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLD
+E4MzEyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2
+Mjg1NjczNiwtNzk3NTY4MDcwLC04Mjk5NTkyNzddfQ==
 -->
