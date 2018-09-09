@@ -19,10 +19,10 @@ He shoved me again and I sighed.  "Fine."  I growled.
 
 I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying his company and they were having dinner together.
 
-The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo here and I was okay with that.  The stepped in front of me again and I followed them into a lavious room tha
+The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo here and I was okay with that.  The stepped in front of me again and I followed them into a lavious room that was more home than it was office.  Some Venatori
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMjU3MTI1MDUsMTMzNTEwOTUyNiwxNT
+eyJoaXN0b3J5IjpbLTE5MTcxMTUzNDEsMTMzNTEwOTUyNiwxNT
 g5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQx
 ODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLD
 E4MzEyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2
