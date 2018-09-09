@@ -20,13 +20,15 @@ He shoved me again and I sighed.  "Fine."  I growled.
 I stepped inside the plate glass death trap and pressed myself up against the back of the elevator and closed my eyes as I tried to calm my breathing.  I hated elevators.  I wished Alex was here.  And then I remembered seeing him and then his friend, Benji.  Benji said they were just friends but I was starting to doubt it.  Alex looked like he was enjoying his company and they were having dinner together.
 
 The elevator stopped and I rushed out before the goons.  I sighed as I waited for them to come out of the elevator.  They glared at me like I was some sort of aberration.  And I guess I was.  I was a weirdo here and I was okay with that.  The stepped in front of me again and I followed them into a lavious room that was more home than it was office.  Some Venatori were pretentious.  
-S
-I 
+
+Scarlet was sitting on a plush red couch lined with gold filigree and drinking a dark red wine probably from a crystal fluted glass more expensive than my entire dinnerware set.
+
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjc2NTkzODEyLC0xODUwMTM3NDc3LC0xNT
-kzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1MjYsMTU4OTQ2
-NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5NDA0MTg0LC
-03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMx
-MjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NT
-Y3MzYsLTc5NzU2ODA3MCwtODI5OTU5Mjc3XX0=
+eyJoaXN0b3J5IjpbLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMT
+U5Mzk2MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0
+NjcxOTYsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NC
+wtNzkxNTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgz
+MTI0NTI1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyOD
+U2NzM2LC03OTc1NjgwNzAsLTgyOTk1OTI3N119
 -->
