@@ -37,10 +37,10 @@ I looked up at her, "Most men aren't attracted to men."
 
 "I heard that about you."  She said sitting down on the edge of my chair and ran her fingers up my arm.  I smirked, "I'm here to see about a boy, that's all."
 
-"So I was told.
+"So I was told, but I have use of you
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc4NzQ0NjE5MiwtMjA5OTEwNTAxLC05OT
+eyJoaXN0b3J5IjpbLTQyMjg5OTYxNSwtMjA5OTEwNTAxLC05OT
 I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
 MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
 YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
