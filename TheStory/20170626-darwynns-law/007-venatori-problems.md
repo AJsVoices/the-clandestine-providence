@@ -53,16 +53,16 @@ She smiled.  "You have one Prince already in your pocket, two heads of packs, yo
 
 I shrugged and kept my eyes on her.  "I get around what can I say."
 
-She smirked, "I want you to get around for me, Nox."  Her hand trailed up to my check and along my jawline.  
+She smirked, "I want you to get around for me, Nox."  Her hand trailed up to my cheek and along my jawline. I wanted to jerk away but this was a woman would could break me in a heart beat and I preferred to survive long enough to at least kiss Alex one more time.
 
 "What do you want me to do?"  I asked.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjE0NjY5NDE2NywtNjE1ODIzMTE4LC0xMj
-gwODI3MDcxLC01NTY0MzQyMzksNjIxNDEzMDAxLC00MjI4OTk2
-MTUsLTIwOTkxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4NjQsLT
-E4NTAxMzc0NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzNDEsMTMz
-NTEwOTUyNiwxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4Nj
-QzMDEsMTk0MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwt
-MjYwMTQ3ODkwXX0=
+eyJoaXN0b3J5IjpbMjk3ODE1Nzk5LDIxNDY2OTQxNjcsLTYxNT
+gyMzExOCwtMTI4MDgyNzA3MSwtNTU2NDM0MjM5LDYyMTQxMzAw
+MSwtNDIyODk5NjE1LC0yMDk5MTA1MDEsLTk5MjYxMzE0OCwtMz
+E3MjQzODY0LC0xODUwMTM3NDc3LC0xNTkzOTYyMTg2LC0xOTE3
+MTE1MzQxLDEzMzUxMDk1MjYsMTU4OTQ2NzE5NiwtMTQxNTUzMT
+MyNiwxODI5ODY0MzAxLDE5NDA0MTg0LC03OTE1MjQ0MzIsLTE1
+NTk1NDQwMzFdfQ==
 -->
