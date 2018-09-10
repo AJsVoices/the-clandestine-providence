@@ -39,14 +39,16 @@ I looked up at her, "Most men aren't attracted to men."
 
 "So I was told, but I have use of you."  Her fingers trailed up my arm still and I had to think about other things.  She knew exactly what she was doing to entice a man.  And I was no different.  
 
-I looked into her 
+I looked into her dark green eyes, "I'm expendable."
+
+She shook her head then smi
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU0NjQ4NDExNCwtNDIyODk5NjE1LC0yMD
-k5MTA1MDEsLTk5MjYxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3
-NDc3LC0xNTkzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1Mj
-YsMTU4OTQ2NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5
-NDA0MTg0LC03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nz
-g5MCwxODMxMjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMs
-LTE0NjI4NTY3MzZdfQ==
+eyJoaXN0b3J5IjpbNDE3Nzc1ODc5LC00MjI4OTk2MTUsLTIwOT
+kxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0
+NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNi
+wxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0
+MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3OD
+kwLDE4MzEyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywt
+MTQ2Mjg1NjczNl19
 -->
