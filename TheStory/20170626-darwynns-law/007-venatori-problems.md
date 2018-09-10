@@ -45,14 +45,20 @@ She shook her head then smiled, "Well, yes, but there's more to it than that.   
 
 "The Prince of Vegas."  I said with confidence.  "You want me to go up against a prince?"
 
-She smiled.  "You have one Prince already in your pocket, two heads of packs, you are friends with 
+She smiled.  "You have one Prince already in your pocket, two heads of packs, you are friends with the money makers for the CCB."
+
+"I wouldn't call Desmond and Marshall friends."  I interrupted.
+
+"But you call them by their first name."
+
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwNjI2Mzc3MTUsNjIxNDEzMDAxLC00Mj
-I4OTk2MTUsLTIwOTkxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4
-NjQsLTE4NTAxMzc0NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzND
-EsMTMzNTEwOTUyNiwxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4
-Mjk4NjQzMDEsMTk0MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0ND
-AzMSwtMjYwMTQ3ODkwLDE4MzEyNDUyNTAsMjA4OTU0Nzk2Nywt
-MTkxOTk5MzUyM119
+eyJoaXN0b3J5IjpbLTU1NjQzNDIzOSw2MjE0MTMwMDEsLTQyMj
+g5OTYxNSwtMjA5OTEwNTAxLC05OTI2MTMxNDgsLTMxNzI0Mzg2
+NCwtMTg1MDEzNzQ3NywtMTU5Mzk2MjE4NiwtMTkxNzExNTM0MS
+wxMzM1MTA5NTI2LDE1ODk0NjcxOTYsLTE0MTU1MzEzMjYsMTgy
+OTg2NDMwMSwxOTQwNDE4NCwtNzkxNTI0NDMyLC0xNTU5NTQ0MD
+MxLC0yNjAxNDc4OTAsMTgzMTI0NTI1MCwyMDg5NTQ3OTY3LC0x
+OTE5OTkzNTIzXX0=
 -->
