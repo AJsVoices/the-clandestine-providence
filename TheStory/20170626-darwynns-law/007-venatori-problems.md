@@ -49,16 +49,16 @@ She smiled.  "You have one Prince already in your pocket, two heads of packs, yo
 
 "I wouldn't call Desmond and Marshall friends."  I interrupted.
 
-"But you call them by their first name."  She laughed with such s
+"But you call them by their first name."  She laughed with such seduction I was almost convinced
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExOTA4NTcyNSwtNTU2NDM0MjM5LDYyMT
-QxMzAwMSwtNDIyODk5NjE1LC0yMDk5MTA1MDEsLTk5MjYxMzE0
-OCwtMzE3MjQzODY0LC0xODUwMTM3NDc3LC0xNTkzOTYyMTg2LC
-0xOTE3MTE1MzQxLDEzMzUxMDk1MjYsMTU4OTQ2NzE5NiwtMTQx
-NTUzMTMyNiwxODI5ODY0MzAxLDE5NDA0MTg0LC03OTE1MjQ0Mz
-IsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMxMjQ1MjUwLDIw
-ODk1NDc5NjddfQ==
+eyJoaXN0b3J5IjpbLTEyODA4MjcwNzEsLTU1NjQzNDIzOSw2Mj
+E0MTMwMDEsLTQyMjg5OTYxNSwtMjA5OTEwNTAxLC05OTI2MTMx
+NDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2MjE4Ni
+wtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOTYsLTE0
+MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkxNTI0ND
+MyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NTI1MCwy
+MDg5NTQ3OTY3XX0=
 -->
