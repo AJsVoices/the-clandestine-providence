@@ -37,14 +37,14 @@ I looked up at her, "Most men aren't attracted to men."
 
 "I heard that about you."  She said sitting down on the edge of my chair and ran her fingers up my arm.  I smirked, "I'm here to see about a boy, that's all."
 
-"So I was told, but I have use of you."  Her fingers trailed up my arm still and I had to
+"So I was told, but I have use of you."  Her fingers trailed up my arm still and I had to think about other things.  She knew exactly what she was doing to entice a man.  And I was no different.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTYyNDcxMDAsLTQyMjg5OTYxNSwtMj
-A5OTEwNTAxLC05OTI2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEz
-NzQ3NywtMTU5Mzk2MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NT
-I2LDE1ODk0NjcxOTYsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwx
-OTQwNDE4NCwtNzkxNTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxND
-c4OTAsMTgzMTI0NTI1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIz
-LC0xNDYyODU2NzM2XX0=
+eyJoaXN0b3J5IjpbLTkwMzkwMDQ2MiwtNDIyODk5NjE1LC0yMD
+k5MTA1MDEsLTk5MjYxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3
+NDc3LC0xNTkzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1Mj
+YsMTU4OTQ2NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5
+NDA0MTg0LC03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nz
+g5MCwxODMxMjQ1MjUwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMs
+LTE0NjI4NTY3MzZdfQ==
 -->
