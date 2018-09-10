@@ -51,14 +51,18 @@ She smiled.  "You have one Prince already in your pocket, two heads of packs, yo
 
 "But you call them by their first name."  She laughed with such seduction I was almost convinced she wanted me.  
 
+I shrugged and kept my eyes on her.  "I get around what can I say."
 
+She smirked, "I want you to get around for me, Nox."  Her hand trailed up to my check and along my jawline.  
+
+"What do you want me to do?"  I asked.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYxNTgyMzExOCwtMTI4MDgyNzA3MSwtNT
-U2NDM0MjM5LDYyMTQxMzAwMSwtNDIyODk5NjE1LC0yMDk5MTA1
-MDEsLTk5MjYxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3NDc3LC
-0xNTkzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1MjYsMTU4
-OTQ2NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5NDA0MT
-g0LC03OTE1MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwx
-ODMxMjQ1MjUwXX0=
+eyJoaXN0b3J5IjpbMjE0NjY5NDE2NywtNjE1ODIzMTE4LC0xMj
+gwODI3MDcxLC01NTY0MzQyMzksNjIxNDEzMDAxLC00MjI4OTk2
+MTUsLTIwOTkxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4NjQsLT
+E4NTAxMzc0NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzNDEsMTMz
+NTEwOTUyNiwxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4Nj
+QzMDEsMTk0MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwt
+MjYwMTQ3ODkwXX0=
 -->
