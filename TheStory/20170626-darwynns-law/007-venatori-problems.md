@@ -33,9 +33,13 @@ I grinned and bowed with a great flourish from my seat, "And here I am in all my
 
 She stood up and looked at me like I was prey.  "And look at that glory."  She sashayed her way towards me, her hips moving as she walked but I let my eyes stay with hers instead of looking at the way she moved.  "Most men would leer."
 
-I looked up at her, "Most men aren't gay
+I looked up at her, "Most men aren't attracted to men."
+
+"I heard that about you."  She said sitting down on the edge of my chair and ran her fingers up my arm.  I smirked, "I'm here to see about a boy, that's all."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4NTE2NTA3OCwtMjA5OTEwNTAxLC05OT
+eyJoaXN0b3J5IjpbLTcxNzA4MzYzMSwtMjA5OTEwNTAxLC05OT
 I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
 MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
 YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
