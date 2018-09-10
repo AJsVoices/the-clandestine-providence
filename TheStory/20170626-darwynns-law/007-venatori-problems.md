@@ -37,10 +37,12 @@ I looked up at her, "Most men aren't attracted to men."
 
 "I heard that about you."  She said sitting down on the edge of my chair and ran her fingers up my arm.  I smirked, "I'm here to see about a boy, that's all."
 
-"So I was told, but I have use of you."  Her fingers trailed up my arm still and I had to think about other things.  She knew exactly what she was doing to entice a man.  And I was no different.
+"So I was told, but I have use of you."  Her fingers trailed up my arm still and I had to think about other things.  She knew exactly what she was doing to entice a man.  And I was no different.  
+
+I looked into her 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkwMzkwMDQ2MiwtNDIyODk5NjE1LC0yMD
+eyJoaXN0b3J5IjpbLTU0NjQ4NDExNCwtNDIyODk5NjE1LC0yMD
 k5MTA1MDEsLTk5MjYxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3
 NDc3LC0xNTkzOTYyMTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1Mj
 YsMTU4OTQ2NzE5NiwtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5
