@@ -37,14 +37,14 @@ I looked up at her, "Most men aren't attracted to men."
 
 "I heard that about you."  She said sitting down on the edge of my chair and ran her fingers up my arm.  I smirked, "I'm here to see about a boy, that's all."
 
-
+"So I was told.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwOTgzNjc5LC0yMDk5MTA1MDEsLTk5Mj
-YxMzE0OCwtMzE3MjQzODY0LC0xODUwMTM3NDc3LC0xNTkzOTYy
-MTg2LC0xOTE3MTE1MzQxLDEzMzUxMDk1MjYsMTU4OTQ2NzE5Ni
-wtMTQxNTUzMTMyNiwxODI5ODY0MzAxLDE5NDA0MTg0LC03OTE1
-MjQ0MzIsLTE1NTk1NDQwMzEsLTI2MDE0Nzg5MCwxODMxMjQ1Mj
-UwLDIwODk1NDc5NjcsLTE5MTk5OTM1MjMsLTE0NjI4NTY3MzYs
-LTc5NzU2ODA3MF19
+eyJoaXN0b3J5IjpbMTc4NzQ0NjE5MiwtMjA5OTEwNTAxLC05OT
+I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
+MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
+YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
+NTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NT
+I1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2
+LC03OTc1NjgwNzBdfQ==
 -->
