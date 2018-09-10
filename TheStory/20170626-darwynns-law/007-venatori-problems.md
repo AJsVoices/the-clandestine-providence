@@ -31,13 +31,15 @@ She gave me a flowery smile that spread her lips thin against her teeth.  "Ms. R
 
 I grinned and bowed with a great flourish from my seat, "And here I am in all my glory."
 
-She stood up and looked at me like I was prey.  "And 
+She stood up and looked at me like I was prey.  "And look at that glory."  She sashayed her way towards me, her hips moving as she walked but I let my eyes stay with hers instead of looking at the way she moved.  "Most men would leer."
+
+I looked up at her, "Most men aren't
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NTk2NDExNDQsLTIwOTkxMDUwMSwtOT
-kyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0NzcsLTE1OTM5
-NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNiwxNTg5NDY3MT
-k2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQxODQsLTc5
-MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLDE4MzEyND
-UyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1Njcz
-NiwtNzk3NTY4MDcwXX0=
+eyJoaXN0b3J5IjpbMTU2MzA1NDAyNSwtMjA5OTEwNTAxLC05OT
+I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
+MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
+YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
+NTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NT
+I1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2
+LC03OTc1NjgwNzBdfQ==
 -->
