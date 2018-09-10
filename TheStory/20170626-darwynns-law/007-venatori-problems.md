@@ -25,13 +25,17 @@ Scarlet was sitting on a plush red couch lined with gold filigree and drinking a
 
  Her legs were up on the couch like she was an enticing treat.  I smirked as I was lead to a seat and motioned by her men to sit.  "Mr. Sétanta, a pleasure."
 
-"Scarlet Snow."  I said as I sat down.  "I don't know if it's a pleasure or not.  Though I like your place."  I said looking around.  I made sure to meet her eyes and ignore the rest of it.  She was a beautiful woman if a bit older than my typical roll.  But I wasn't looking for a roll, nor wa
+"Scarlet Snow."  I said as I sat down.  "I don't know if it's a pleasure or not.  Though I like your place."  I said looking around.  I made sure to meet her eyes and ignore the rest of it.  She was a beautiful woman if a bit older than my typical fuck.  But I wasn't here looking for that.  I was called in for whatever purpose they thought was important enough to distract me from my adventures.  "I though Dorian Vega or Dae'lin Rivera cleared my passage before I landed."
+
+She gave me a flowerly smile that spread her lips thin against her teeth.  "Ms. Rivera did."
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc4MTEyODc3NiwtMjA5OTEwNTAxLC05OT
-I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
-MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
-YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
-NTI0NDMyLC0xNTU5NTQ0MDMxLC0yNjAxNDc4OTAsMTgzMTI0NT
-I1MCwyMDg5NTQ3OTY3LC0xOTE5OTkzNTIzLC0xNDYyODU2NzM2
-LC03OTc1NjgwNzBdfQ==
+eyJoaXN0b3J5IjpbLTE0NTIxMjQ4ODcsLTIwOTkxMDUwMSwtOT
+kyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0NzcsLTE1OTM5
+NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNiwxNTg5NDY3MT
+k2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQxODQsLTc5
+MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3ODkwLDE4MzEyND
+UyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywtMTQ2Mjg1Njcz
+NiwtNzk3NTY4MDcwXX0=
 -->
