@@ -27,11 +27,13 @@ Scarlet was sitting on a plush red couch lined with gold filigree and drinking a
 
 "Scarlet Snow."  I said as I sat down.  "I don't know if it's a pleasure or not.  Though I like your place."  I said looking around.  I made sure to meet her eyes and ignore the rest of it.  She was a beautiful woman if a bit older than my typical fuck.  But I wasn't here looking for that.  I was called in for whatever purpose they thought was important enough to distract me from my adventures.  "I though Dorian Vega or Dae'lin Rivera cleared my passage before I landed."
 
-She gave me a flowerly smile that spread her lips thin against her teeth.  "Ms. Rivera did."
+She gave me a flowery smile that spread her lips thin against her teeth.  "Ms. Rivera did, but I still wanted to see the boy who is friends with the monsters."
 
+I grinned and bowed with a great flourish from my seat, "And here I am in all my glory."
 
+She stood up and looked at me like I was prey.  "And 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NTIxMjQ4ODcsLTIwOTkxMDUwMSwtOT
+eyJoaXN0b3J5IjpbLTE3NTk2NDExNDQsLTIwOTkxMDUwMSwtOT
 kyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0NzcsLTE1OTM5
 NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNiwxNTg5NDY3MT
 k2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0MDQxODQsLTc5
