@@ -25,9 +25,9 @@ Scarlet was sitting on a plush red couch lined with gold filigree and drinking a
 
  Her legs were up on the couch like she was an enticing treat.  I smirked as I was lead to a seat and motioned by her men to sit.  "Mr. Sétanta, a pleasure."
 
-"Scarlet Snow."  I said as I sat down.  "I don't know if it's a pleasure or not.  Though I like your place."  I said looking around.  I made sure to meet her eyes and ignore the rest of it.  She was a beautiful woman if a bit older than my typical girl
+"Scarlet Snow."  I said as I sat down.  "I don't know if it's a pleasure or not.  Though I like your place."  I said looking around.  I made sure to meet her eyes and ignore the rest of it.  She was a beautiful woman if a bit older than my typical roll.  But I wasn't looking for a roll, nor wa
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3ODk4Mjk3NiwtMjA5OTEwNTAxLC05OT
+eyJoaXN0b3J5IjpbLTc4MTEyODc3NiwtMjA5OTEwNTAxLC05OT
 I2MTMxNDgsLTMxNzI0Mzg2NCwtMTg1MDEzNzQ3NywtMTU5Mzk2
 MjE4NiwtMTkxNzExNTM0MSwxMzM1MTA5NTI2LDE1ODk0NjcxOT
 YsLTE0MTU1MzEzMjYsMTgyOTg2NDMwMSwxOTQwNDE4NCwtNzkx
