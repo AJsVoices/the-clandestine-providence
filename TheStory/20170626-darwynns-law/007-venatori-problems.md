@@ -41,14 +41,18 @@ I looked up at her, "Most men aren't attracted to men."
 
 I looked into her dark green eyes, "I'm expendable."
 
-She shook her head then smiled, "Well, yes, but there's more to it than that.  
+She shook her head then smiled, "Well, yes, but there's more to it than that.   Abraham Morgan."
+
+"The Prince of Vegas."  I said with confidence.  "You want me to go up against a prince?"
+
+She smiled.  "You have one Prince already in your pocket, two heads of packs, you are friends with 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjIxNDEzMDAxLC00MjI4OTk2MTUsLTIwOT
-kxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0
-NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNi
-wxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0
-MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0NDAzMSwtMjYwMTQ3OD
-kwLDE4MzEyNDUyNTAsMjA4OTU0Nzk2NywtMTkxOTk5MzUyMywt
-MTQ2Mjg1NjczNl19
+eyJoaXN0b3J5IjpbLTEwNjI2Mzc3MTUsNjIxNDEzMDAxLC00Mj
+I4OTk2MTUsLTIwOTkxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4
+NjQsLTE4NTAxMzc0NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzND
+EsMTMzNTEwOTUyNiwxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4
+Mjk4NjQzMDEsMTk0MDQxODQsLTc5MTUyNDQzMiwtMTU1OTU0ND
+AzMSwtMjYwMTQ3ODkwLDE4MzEyNDUyNTAsMjA4OTU0Nzk2Nywt
+MTkxOTk5MzUyM119
 -->
