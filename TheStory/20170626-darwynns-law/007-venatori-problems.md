@@ -41,10 +41,10 @@ I looked up at her, "Most men aren't attracted to men."
 
 I looked into her dark green eyes, "I'm expendable."
 
-She shook her head then smi
+She shook her head then smiled, "Well, yes, but there's more to it than that.  
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDE3Nzc1ODc5LC00MjI4OTk2MTUsLTIwOT
+eyJoaXN0b3J5IjpbNjIxNDEzMDAxLC00MjI4OTk2MTUsLTIwOT
 kxMDUwMSwtOTkyNjEzMTQ4LC0zMTcyNDM4NjQsLTE4NTAxMzc0
 NzcsLTE1OTM5NjIxODYsLTE5MTcxMTUzNDEsMTMzNTEwOTUyNi
 wxNTg5NDY3MTk2LC0xNDE1NTMxMzI2LDE4Mjk4NjQzMDEsMTk0
